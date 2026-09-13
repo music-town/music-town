@@ -35,5 +35,5 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/poisonedRitual">poisonedRitual</a> -> i’d like to compliment poisonedRitual as <a href="https://www.youtube.com/watch?v=KCBHuavJ3EQ">They Will Bury Me A Woman by rainyholmes 🌧️</a> - <a href="https://github.com/spacebombed">spacebombed</a>
 <br>
-<a href="">cupiidshot</a> ->  i wabana compliment zaph with <a href="https://www.youtube.com/watch?v=kEVMjzBhkgI">Save the Future Lobby Theme by Devsisters</a> - <a href="https://github.com/star-employee">star-employee</a>
+<a href="https://github.com/cupiidshot">cupiidshot</a> ->  i wabana compliment zaph with <a href="https://www.youtube.com/watch?v=kEVMjzBhkgI">Save the Future Lobby Theme by Devsisters</a> - <a href="https://github.com/star-employee">star-employee</a>
 <img src="https://64.media.tumblr.com/803bd64ba3d0890234117cc649afa380/2f3bd6cd9d8d1e57-86/s2048x3072/dce51fa9c00762929641f940ea3774915b38698b.gifv"></img>
