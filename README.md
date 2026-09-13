@@ -21,6 +21,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/dr-vanta">dr-vanta</a> is Pony Town's <a href="https://www.youtube.com/watch?v=5-rfnjXj91Y">Battle Vs Dr. Vanta by Rxpp/Ray</a> and <a href="https://www.youtube.com/watch?v=lP2xC5eC2xM">Steine Sind Steine by And One</a><i>!</i>!
 <br>
+<a href="https://github.com/earl-grey-mp4">earl-grey-mp4</a> is Pony Town's <a href="https://www.youtube.com/watch?v=FCCq7PYrr4Q">You've Got Mail! feat. Defoko & Adachi Rei by Phantoskii</a> and <a href="https://www.youtube.com/watch?v=C0ruAy8TpPo">Let You Break My Heart Again by Laufey</a><i>!</i>!
+<br>
 <a href="https://github.com/poisonedRitual">poisonedRitual</a> is Pony Town's <a href="https://www.youtube.com/watch?v=y8p9IBZQURI">crash by bunii</a> and <a href="https://www.youtube.com/watch?v=8EXdAednIGg">never enough by otuka</a><i>!</i>!
 <br>
 <a href="https://github.com/star-employee">star-employee</a> is Pony Town's <a href="https://www.youtube.com/watch?v=wqPdeT6Jpdg">Wet by Dazey and the Scouts</a> and <a href="https://www.youtube.com/watch?v=rL-Zq4NXPoU">FOOL ME NOT by rattlepate</a><i>!</i>!
@@ -28,9 +30,14 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <a href="https://github.com/twottimey">twottimey</a> is Pony Town's <a href="https://www.youtube.com/watch?v=HZik4fKw3G0">Two Time by Jack Stauber</a><i>!</i>!
 <br>
 <a href="https://github.com/viimsey">viimsey</a> is Pony Town's <a href="https://www.youtube.com/watch?v=-QVcPJ_yWa8">Sweet Dreams by Left Boy</a> and <a href="https://www.youtube.com/watch?v=_V17JN76uxc">Ancient Dreams in a Modern Land by MARINA</a><i>!</i>!
+<br>
+<a href="https://github.com/yellowdeltarune">yellowdeltarune</a> is Pony Town's <a href="https://www.youtube.com/watch?v=kXp2H7GbYis">Stop, Criminell! by Toby Fox</a><i>!</i>!
 <img src="https://64.media.tumblr.com/79a30c28afa3da5c28d0d0c908fa2569/2f3bd6cd9d8d1e57-04/s2048x3072/747a33516aa668a224d1d3e57c1402055cc5f0eb.gifv"></img>
+<br>
 <h3>$${\color{#39A1FF}Group\ songs!}$$</h3>
 <a href="https://github.com/dr-vanta">dr-vanta</a>, <a href="https://github.com/star-employee">star-employee</a> and <a href="https://github.com/viimsey">viimsey</a> are Pony Town's <a href="">天国へ行こう by Kikuo</a> trio<i>!</i>!
+<br>
+<a href="https://github.com/dr-vanta">dr-vanta</a> and <a href="https://github.com/earl-grey-mp4">earl-grey-mp4</a> are Pony Town's <a href="https://www.youtube.com/watch?v=-oMZw8DQbaI">Open Arms by Jorge Rivera-Herrans</a> duo<i>!</i>!
 <img src="https://64.media.tumblr.com/f2167efcf0efd4f326e32411fef3f9d2/2f3bd6cd9d8d1e57-a5/s2048x3072/27714dfb479b5655e07559ab925534a94470f1cd.gifv"></img>
 <h3>$${\color{#FFBFF8}Complimenting\ songs!}$$</h3>
 <a href="https://github.com/star-employee">star-employee</a> -> This <a href="https://www.youtube.com/watch?v=4BIQvdIppyk">song</a> reminds me a lot of you (Patila - Missed the Stranger) - <a href="https://github.com/viimsey">viimsey</a>
@@ -38,4 +45,6 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <a href="https://github.com/poisonedRitual">poisonedRitual</a> -> i’d like to compliment poisonedRitual as <a href="https://www.youtube.com/watch?v=KCBHuavJ3EQ">They Will Bury Me A Woman by rainyholmes 🌧️</a> - <a href="https://github.com/spacebombed">spacebombed</a>
 <br>
 <a href="https://github.com/cupiidshot">cupiidshot</a> ->  i wabana compliment zaph with <a href="https://www.youtube.com/watch?v=kEVMjzBhkgI">Save the Future Lobby Theme by Devsisters</a> - <a href="https://github.com/star-employee">star-employee</a>
+<br>
+<a href="https://github.com/dr-vanta">dr-vanta</a> -> dr-vanta reminds me of the song <a href="https://www.youtube.com/watch?v=KWEsdF57hB4">Escapism. by RAYE</a> due to how much it relates to him in a way Σ(°ロ°) - <a href="https://github.com/earl-grey-mp4">earl-grey-mp4</a>
 <img src="https://64.media.tumblr.com/803bd64ba3d0890234117cc649afa380/2f3bd6cd9d8d1e57-86/s2048x3072/dce51fa9c00762929641f940ea3774915b38698b.gifv"></img>
