@@ -12,10 +12,12 @@ Or <br>
 You can also compliment people and say certain songs remind you of them!
 <br>
 Example: "To [github user], [song name] by [artist] reminds me a lot of you, from [gitub user #2]/anonymous"
-<img src="https://64.media.tumblr.com/f2167efcf0efd4f326e32411fef3f9d2/2f3bd6cd9d8d1e57-a5/s2048x3072/27714dfb479b5655e07559ab925534a94470f1cd.gifv"></img>
+<br>
+Any type of music is allowed, including OSTs, USTs, etc.!
+<img src="https://64.media.tumblr.com/aebf868441203ea08a905350f53f742a/2f3bd6cd9d8d1e57-8a/s2048x3072/d1716b88a057d710fce2065d382966a7d4ed45c8.gifv"></img>
 <h3>$${\color{#6A42BF}Solo\ songs!}$$</h3>
-<img src="https://64.media.tumblr.com/f2167efcf0efd4f326e32411fef3f9d2/2f3bd6cd9d8d1e57-a5/s2048x3072/27714dfb479b5655e07559ab925534a94470f1cd.gifv"></img>
+<img src="https://64.media.tumblr.com/79a30c28afa3da5c28d0d0c908fa2569/2f3bd6cd9d8d1e57-04/s2048x3072/747a33516aa668a224d1d3e57c1402055cc5f0eb.gifv"></img>
 <h3>$${\color{#39A1FF}Group\ songs!}$$</h3>
 <img src="https://64.media.tumblr.com/f2167efcf0efd4f326e32411fef3f9d2/2f3bd6cd9d8d1e57-a5/s2048x3072/27714dfb479b5655e07559ab925534a94470f1cd.gifv"></img>
 <h3>$${\color{#FFBFF8}Complimenting\ songs!}$$</h3>
-<img src="https://64.media.tumblr.com/f2167efcf0efd4f326e32411fef3f9d2/2f3bd6cd9d8d1e57-a5/s2048x3072/27714dfb479b5655e07559ab925534a94470f1cd.gifv"></img>
+<img src="https://64.media.tumblr.com/803bd64ba3d0890234117cc649afa380/2f3bd6cd9d8d1e57-86/s2048x3072/dce51fa9c00762929641f940ea3774915b38698b.gifv"></img>
