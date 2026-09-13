@@ -1,5 +1,5 @@
 <h3>$${\color{#723C87}Welcome\ to\ the\ Music\ Town\ page!}$$</h3>
-<img align="right" src="https://media.tenor.com/SrhuBclF5nYAAAAi/octavia-melody-dj-pon3.gif" width=150>
+<img align="right" src="https://media.tenor.com/SrhuBclF5nYAAAAi/octavia-melody-dj-pon3.gif" width=250>
 <a href="https://music-town.straw.page">Put yourself in our music  list! <i>(max 2 songs for 1 person unless complimenting/friend groups)</i></a>
 <br>
 <br>
@@ -13,7 +13,8 @@ You can also compliment people and say certain songs remind you of them!
 <br>
 Example: "To [github user], [song name] by [artist] reminds me a lot of you, from [gitub user #2]/anonymous"
 <br>
-Any type of music is allowed, including OSTs, USTs, etc.!
+<br>
+Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic music artists)
 <img src="https://64.media.tumblr.com/aebf868441203ea08a905350f53f742a/2f3bd6cd9d8d1e57-8a/s2048x3072/d1716b88a057d710fce2065d382966a7d4ed45c8.gifv"></img>
 <h3>$${\color{#6A42BF}Solo\ songs!}$$</h3>
 <img src="https://64.media.tumblr.com/79a30c28afa3da5c28d0d0c908fa2569/2f3bd6cd9d8d1e57-04/s2048x3072/747a33516aa668a224d1d3e57c1402055cc5f0eb.gifv"></img>
