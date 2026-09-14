@@ -57,6 +57,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/viimsey">viimsey</a> is Pony Town's <a href="https://www.youtube.com/watch?v=-QVcPJ_yWa8">Sweet Dreams by Left Boy</a> and <a href="https://www.youtube.com/watch?v=_V17JN76uxc">Ancient Dreams in a Modern Land by MARINA</a><i>!</i>!
 <br>
+<a href="https://github.com/XANDREOHZANZAN">XANDREOHZANZAN</a> is Pony Town's <a href="https://www.youtube.com/watch?v=Y0EcKR05Ac4">マジカルドクター by MARETU</a><i>!</i>! <b><i>(EPILEPSY WARNING FOR THE VIDEO!)</i></b>
+<br>
 <a href="https://github.com/yellowdeltarune">yellowdeltarune</a> is Pony Town's <a href="https://www.youtube.com/watch?v=kXp2H7GbYis">Stop, Criminell! by Toby Fox</a><i>!</i>!
 <img src="https://64.media.tumblr.com/79a30c28afa3da5c28d0d0c908fa2569/2f3bd6cd9d8d1e57-04/s2048x3072/747a33516aa668a224d1d3e57c1402055cc5f0eb.gifv"></img>
 <h3>$${\color{#39A1FF}Group\ songs!}$$</h3>
