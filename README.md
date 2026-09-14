@@ -68,7 +68,7 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/dr-vanta">dr-vanta</a> and <a href="https://github.com/earl-grey-mp4">earl-grey-mp4</a> are Pony Town's <a href="https://www.youtube.com/watch?v=-oMZw8DQbaI">Open Arms by Jorge Rivera-Herrans</a> duo<i>!</i>!
 <br>
-<a href="https://github.com/c0ff3el0v3r">c0ff3el0v3r</a> and <a href="https://github.com/parameowia">parameowia</a> are Pony Town's <a href="https://www.youtube.com/watch?v=T1UmfI7yo6k">Minds with Lord X ft. Majin by churgney gurgney, RedTv53, MarStarBro, marley jauz, MaimyMayo</a> duo<i>!</i>!
+<a href="https://github.com/c0ff3el0v3r">c0ff3el0v3r</a> and <a href="https://github.com/parameowia">parameowia</a> are Pony Town's <a href="https://www.youtube.com/watch?v=T1UmfI7yo6k">Minds with Lord X ft. Majin by churgney gurgney, RedTv53, MarStarBro, marley jauz and MaimyMayo</a> duo<i>!</i>!
 <img src="https://64.media.tumblr.com/f2167efcf0efd4f326e32411fef3f9d2/2f3bd6cd9d8d1e57-a5/s2048x3072/27714dfb479b5655e07559ab925534a94470f1cd.gifv"></img>
 <h3>$${\color{#FFBFF8}Complimenting\ songs!}$$</h3>
 <a href="https://github.com/star-employee">star-employee</a> -> This <a href="https://www.youtube.com/watch?v=4BIQvdIppyk">song</a> reminds me a lot of you (Patila - Missed the Stranger) - <a href="https://github.com/viimsey">viimsey</a>
