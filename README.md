@@ -16,6 +16,13 @@ Example: "To [github user], [song name] by [artist] reminds me a lot of you, fro
 <br>
 <br>
 Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic music artists)
+<div align="center">
+  <details>
+    <summary> </summary>
+    <a href="https://mlp.fandom.com/wiki/Octavia_Melody"><img src="https://files.catbox.moe/ozlscl.gif" width=150 align=left></img></a> <a href="https://mlp.fandom.com/wiki/DJ_Pon-3"><img src="https://files.catbox.moe/ypcmme.gif" width=150 align=right></img></a>
+    <p align="center"> If you see these pony/ies anywhere, feel free to c+h! That's us! </p>
+  </details>
+</div>
 <img src="https://64.media.tumblr.com/aebf868441203ea08a905350f53f742a/2f3bd6cd9d8d1e57-8a/s2048x3072/d1716b88a057d710fce2065d382966a7d4ed45c8.gifv"></img>
 <h3>$${\color{#6A42BF}Solo\ songs!}$$</h3>
 <a href="https://github.com/antidosage">antidosage</a> is Pony Town's <a href="https://www.youtube.com/watch?v=QPYk6jEopvw">Wait by the River by Lord Huron</a> and <a href="https://www.youtube.com/watch?v=AQohqFH0BAk">Daisy Bell by Clinton Ford</a><i>!</i>!
