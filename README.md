@@ -39,6 +39,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/ElijahNiccky">ElijahNiccky</a> is Pony Town's <a href="https://www.youtube.com/watch?v=DTVN5bsnp4A">Absolute Territory by Ken Ashcorp</a> and <a href="https://www.youtube.com/watch?v=Y5eMaCRbYds">White Feather Hawk Tail Deer Hunter by Lana Del Rey</a><i>!</i>!
 <br>
+<a href="https://github.com/freakedoutboy">freakedoutboy</a> is Pony Town's <a href="https://www.youtube.com/watch?v=1HXD-b0bCTw">Beta Beast by Machine Girl</a><i>!</i>!
+<br>
 <a href="https://github.com/kittydummy">kittydummy</a> is Pony Town's <a href="https://www.youtube.com/watch?v=HnEhgFcm8bs">Burnt Rice (feat. Yung GEMMY) by Shawn Wasabi</a><i>!</i>!
 <br>
 <a href="https://github.com/mandela-net">mandela-net</a> is Pony Town's <a href="https://www.youtube.com/watch?v=2mhea--CfpI">BAD LUCK! by Jhariah</a><i>!</i>!
