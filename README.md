@@ -41,6 +41,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/freakedoutboy">freakedoutboy</a> is Pony Town's <a href="https://www.youtube.com/watch?v=1HXD-b0bCTw">Beta Beast by Machine Girl</a><i>!</i>!
 <br>
+<a href="https://github.com/itrap-2245">itrap-2245</a> is Pony Town's <a href="https://www.youtube.com/watch?v=s-SVou8FtVw">Getting Over You by Hot Freaks</a><i>!</i>!
+<br>
 <a href="https://github.com/kittydummy">kittydummy</a> is Pony Town's <a href="https://www.youtube.com/watch?v=HnEhgFcm8bs">Burnt Rice (feat. Yung GEMMY) by Shawn Wasabi</a><i>!</i>!
 <br>
 <a href="https://github.com/mandela-net">mandela-net</a> is Pony Town's <a href="https://www.youtube.com/watch?v=2mhea--CfpI">BAD LUCK! by Jhariah</a><i>!</i>!
