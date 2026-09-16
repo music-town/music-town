@@ -49,7 +49,7 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/fukounagirl">fukounagirl</a> is Pony Town's <a href="https://www.youtube.com/watch?v=BW5G7v5PqPc">Writing on the Wall by Will Stetson</a> and <a href="https://www.youtube.com/watch?v=B20w52a_hmo">FUKOUNA GIRL by STOMACH GIRL</a><i>!</i>!
 <br>
-<a href="https://github.com/itrap-2245">itrap-2245</a> is Pony Town's <a href="https://www.youtube.com/watch?v=s-SVou8FtVw">Getting Over You by Hot Freaks</a><i>!</i>!
+<a href="https://github.com/itrap-2245">itrap-2245</a> is Pony Town's <a href="https://www.youtube.com/watch?v=s-SVou8FtVw">Getting Over You by Hot Freaks</a> and <a href="https://www.youtube.com/watch?v=bb-EjUlzWME">Machine Girl ft. Defoko by WeevilDoing</a><i>!</i>!
 <br>
 <a href="https://github.com/kittydummy">kittydummy</a> is Pony Town's <a href="https://www.youtube.com/watch?v=HnEhgFcm8bs">Burnt Rice (feat. Yung GEMMY) by Shawn Wasabi</a><i>!</i>!
 <br>
