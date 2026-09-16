@@ -25,6 +25,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 </div>
 <img src="https://64.media.tumblr.com/aebf868441203ea08a905350f53f742a/2f3bd6cd9d8d1e57-8a/s2048x3072/d1716b88a057d710fce2065d382966a7d4ed45c8.gifv"></img>
 <h3>$${\color{#6A42BF}Solo\ songs!}$$</h3>
+<a href="https://github.com/andreslopper">andreslopper</a> is Pony Town's <a href="https://www.youtube.com/watch?v=_8ATsDqXPF0">Fear of a Blank Planet by Porcupine Tree</a><i>!</i>!
+<br>
 <a href="https://github.com/antidosage">antidosage</a> is Pony Town's <a href="https://www.youtube.com/watch?v=QPYk6jEopvw">Wait by the River by Lord Huron</a> and <a href="https://www.youtube.com/watch?v=AQohqFH0BAk">Daisy Bell by Clinton Ford</a><i>!</i>!
 <br>
 <a href="https://github.com/Aspenolia">Aspenolia</a> is Pony Town's <a href="https://www.youtube.com/watch?v=wCCu3FVIFz0">The Art Of Driving by Black Box Recorder</a><i>!</i>!
@@ -33,15 +35,19 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/Biteofme">Biteofme</a> is Pony Town's <a href="https://www.youtube.com/watch?v=jgHpJRj4EVI">Hold On Till May by Pierce The Veil</a> and <a href="https://www.youtube.com/watch?v=wWTD18Sktfg">THE WEEKEND By Millionaires</a><i>!</i>!
 <br>
+<a href="https://github.com/Chemicalshot">Chemicalshot</a> is Pony Town's <a href="https://www.youtube.com/watch?v=uKIFNfmYcFI">ATTACKING VERTICAL by femtanyl</a><i>!</i>!
+<br>
 <a href="https://github.com/disorderlyfashion">disorderlyfashion</a> is Pony Town's <a href="https://www.youtube.com/watch?v=jMxU2ToSunY">Miss Murder by AFI</a> and <a href="https://www.youtube.com/watch?v=rKdgl8OUKpk">Figure.09 by Linkin Park</a><i>!</i>!
 <br>
-<a href="https://github.com/dr-vanta">dr-vanta</a> is Pony Town's <a href="https://www.youtube.com/watch?v=5-rfnjXj91Y">Battle Vs Dr. Vanta by Rxpp/Ray</a> and <a href="https://www.youtube.com/watch?v=lP2xC5eC2xM">Steine Sind Steine by And One</a><i>!</i>!
+<a href="https://github.com/dr-vanta">dr-vanta</a> is Pony Town's <a href="https://www.youtube.com/watch?v=5-rfnjXj91Y">Battle Vs Dr. Vanta by Rxpp/Ray</a> and <a href="https://www.youtube.com/watch?v=W0QD3_2VUlE">ひとりぼっちクラブ (feat. 初音ミク) by MushiP</a><i>!</i>!
 <br>
 <a href="https://github.com/earl-grey-mp4">earl-grey-mp4</a> is Pony Town's <a href="https://www.youtube.com/watch?v=FCCq7PYrr4Q">You've Got Mail! feat. Defoko & Adachi Rei by Phantoskii</a> and <a href="https://www.youtube.com/watch?v=C0ruAy8TpPo">Let You Break My Heart Again by Laufey</a><i>!</i>!
 <br>
 <a href="https://github.com/ElijahNiccky">ElijahNiccky</a> is Pony Town's <a href="https://www.youtube.com/watch?v=DTVN5bsnp4A">Absolute Territory by Ken Ashcorp</a> and <a href="https://www.youtube.com/watch?v=Y5eMaCRbYds">White Feather Hawk Tail Deer Hunter by Lana Del Rey</a><i>!</i>!
 <br>
 <a href="https://github.com/freakedoutboy">freakedoutboy</a> is Pony Town's <a href="https://www.youtube.com/watch?v=1HXD-b0bCTw">Beta Beast by Machine Girl</a><i>!</i>!
+<br>
+<a href="https://github.com/fukounagirl">fukounagirl</a> is Pony Town's <a href="https://www.youtube.com/watch?v=BW5G7v5PqPc">Writing on the Wall by Will Stetson</a> and <a href="https://www.youtube.com/watch?v=B20w52a_hmo">FUKOUNA GIRL by STOMACH GIRL</a><i>!</i>!
 <br>
 <a href="https://github.com/itrap-2245">itrap-2245</a> is Pony Town's <a href="https://www.youtube.com/watch?v=s-SVou8FtVw">Getting Over You by Hot Freaks</a><i>!</i>!
 <br>
@@ -51,7 +57,11 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/OHBUNNYBUNNY">OHBUNNYBUNNY</a> is Pony Town's <a href="https://www.youtube.com/watch?v=hKo59kh-WBA">My Way by KATSEYE</a><i>!</i>!
 <br>
+<a href="https://github.com/OlgaSinxer">OlgaSinxer</a> is Pony Town's <a href="https://www.youtube.com/watch?v=fVfixTM7OsA">HEAD UP by femtanyl</a><i>!</i>!
+<br>
 <a href="https://github.com/poisonedRitual">poisonedRitual</a> is Pony Town's <a href="https://www.youtube.com/watch?v=y8p9IBZQURI">crash by bunii</a> and <a href="https://www.youtube.com/watch?v=8EXdAednIGg">never enough by otuka</a><i>!</i>!
+<br>
+<a href="https://github.com/scagalicous">scagalicous</a> is Pony Town's <a href="https://www.youtube.com/watch?v=JOJ0Qk85cJA">Cicadas by Machine Girl</a><i>!</i>!
 <br>
 <a href="https://github.com/shurilong">shurilong</a> is Pony Town's <a href="https://www.youtube.com/watch?v=gOgpdp3lP8M">The Ballad Of Mona Lisa by Panic! At The Disco</a><i>!</i>!
 <br>
@@ -86,4 +96,6 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <a href="https://github.com/dr-vanta">dr-vanta</a> -> dr-vanta remindz me of the song <a href="https://www.youtube.com/watch?v=KWEsdF57hB4">Escapism. by RAYE</a> due 2 how much it relatez 2 him in a way Σ(°ロ°) - <a href="https://github.com/earl-grey-mp4">earl-grey-mp4</a>
 <br>
 <a href="https://github.com/SONNELLINOENTHUSIAST">SONNELLINOENTHUSIAST</a> -> our bond kinda reminds me of <a href="https://www.youtube.com/watch?v=TCoTGmSw0CI">All Night Forever by TWRP</a> in the best platonic way possible, i hope yknow i value our friendship dude - <a href="https://github.com/dr-vanta">dr-vanta</a>
+<br>
+<a href="https://github.com/itrap-2245">itrap-2245</a> -> itrap-2245 with <a href="https://www.youtube.com/watch?v=3BFGrpQy0YE">僕をそんな目で見ないで by Kikuo</a>, youre my friend, and i hope you will get better, im sorry if things happened, just you know i deeply care :( - <a href="https://github.com/andreslopper">andreslopper</a>
 <img src="https://64.media.tumblr.com/803bd64ba3d0890234117cc649afa380/2f3bd6cd9d8d1e57-86/s2048x3072/dce51fa9c00762929641f940ea3774915b38698b.gifv"></img>
