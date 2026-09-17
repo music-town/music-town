@@ -49,7 +49,7 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/freakedoutboy">freakedoutboy</a> is Pony Town's <a href="https://www.youtube.com/watch?v=1HXD-b0bCTw">Beta Beast by Machine Girl</a><i>!</i>!
 <br>
-<a href="https://github.com/fukounagirl">fukounagirl</a> is Pony Town's <a href="https://www.youtube.com/watch?v=BW5G7v5PqPc">Writing on the Wall by Will Stetson</a> and <a href="https://www.youtube.com/watch?v=B20w52a_hmo">FUKOUNA GIRL by STOMACH GIRL</a><i>!</i>!
+<a href="https://github.com/fukounagirl">fukounagirl</a> is Pony Town's <a href="https://www.youtube.com/watch?v=BW5G7v5PqPc">Writing on the Wall by Will Stetson</a> and <a href="https://www.youtube.com/watch?v=B20w52a_hmo">FUKOUNA GIRL by STOMACH BOOK</a><i>!</i>!
 <br>
 <a href="">Gamblersi</a> is Pony Town's <a href="https://www.youtube.com/watch?v=Lzj81rjuPcQ">Casino Royale by Derivakat</a> and <a href="https://www.youtube.com/watch?v=sCNbFjZsAWc">Roll or Die by Rockit Music</a><i>!</i>!
 <br>
