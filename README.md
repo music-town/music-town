@@ -35,7 +35,7 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/Biteofme">Biteofme</a> is Pony Town's <a href="https://www.youtube.com/watch?v=jgHpJRj4EVI">Hold On Till May by Pierce The Veil</a> and <a href="https://www.youtube.com/watch?v=wWTD18Sktfg">THE WEEKEND By Millionaires</a><i>!</i>!
 <br>
-<a href="https://github.com/Chemicalshot">Chemicalshot</a> is Pony Town's <a href="https://www.youtube.com/watch?v=uKIFNfmYcFI">ATTACKING VERTICAL by femtanyl</a> and <a href="https://www.youtube.com/watch?v=an014K66yUk">The Flavor of a Cockroach by MARETU</a><i>!</i>!
+<a href="https://github.com/Chemicalshot">Chemicalshot</a> is Pony Town's <a href="https://www.youtube.com/watch?v=uKIFNfmYcFI">ATTACKING VERTICAL by femtanyl</a> and <a href="https://www.youtube.com/watch?v=Hmc41Zsb2Ns">ゴキブリの味 by MARETU</a><i>!</i>!
 <br>
 <a href="https://github.com/disorderlyfashion">disorderlyfashion</a> is Pony Town's <a href="https://www.youtube.com/watch?v=jMxU2ToSunY">Miss Murder by AFI</a> and <a href="https://www.youtube.com/watch?v=rKdgl8OUKpk">Figure.09 by Linkin Park</a><i>!</i>!
 <br>
