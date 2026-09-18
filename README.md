@@ -73,6 +73,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/star-employee">star-employee</a> is Pony Town's <a href="https://www.youtube.com/watch?v=wqPdeT6Jpdg">Wet by Dazey and the Scouts</a> and <a href="https://www.youtube.com/watch?v=rL-Zq4NXPoU">FOOL ME NOT by rattlepate</a><i>!</i>!
 <br>
+<a href="https://github.com/theemotionalside">theemotionalside</a> is Pony Town's <a href="https://www.youtube.com/watch?v=o-mrtmYisHE">The Heart Acoustic by Chonny Jash</a> and <a href="https://www.youtube.com/watch?v=qjk_OoWnPtk">Light by Chonny Jash</a><i>!</i>!
+<br>
 <a href="https://github.com/TlNKYWlNKY">TlNKYWlNKY</a> is Pony Town's <a href="https://www.youtube.com/watch?v=GWf9_qSrnOM">Flower Man by Toby Fox</a><i>!</i>!
 <br>
 <a href="https://github.com/twottimey">twottimey</a> is Pony Town's <a href="https://www.youtube.com/watch?v=HZik4fKw3G0">Two Time by Jack Stauber</a><i>!</i>!
