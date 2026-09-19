@@ -25,6 +25,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 </div>
 <img src="https://64.media.tumblr.com/aebf868441203ea08a905350f53f742a/2f3bd6cd9d8d1e57-8a/s2048x3072/d1716b88a057d710fce2065d382966a7d4ed45c8.gifv"></img>
 <h3>$${\color{#6A42BF}Solo\ songs!}$$</h3>
+<a href="https://github.com/AcxerSonnellino">AcxerSonnellino</a> is Pony Town's <a href="https://www.youtube.com/watch?v=eT4jgYQqE7I">Soldier Boy by The Shirelles</a> and <a href="https://www.youtube.com/watch?v=bFLDTcLBcZU">Class of 2013 by Mitski</a><i>!</i>!
+<br>
 <a href="https://github.com/andreslopper">andreslopper</a> is Pony Town's <a href="https://www.youtube.com/watch?v=_8ATsDqXPF0">Fear of a Blank Planet by Porcupine Tree</a><i>!</i>!
 <br>
 <a href="https://github.com/antidosage">antidosage</a> is Pony Town's <a href="https://www.youtube.com/watch?v=QPYk6jEopvw">Wait by the River by Lord Huron</a> and <a href="https://www.youtube.com/watch?v=AQohqFH0BAk">Daisy Bell by Clinton Ford</a><i>!</i>!
@@ -36,6 +38,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <a href="https://github.com/Biteofme">Biteofme</a> is Pony Town's <a href="https://www.youtube.com/watch?v=jgHpJRj4EVI">Hold On Till May by Pierce The Veil</a> and <a href="https://www.youtube.com/watch?v=wWTD18Sktfg">THE WEEKEND By Millionaires</a><i>!</i>!
 <br>
 <a href="https://github.com/Chemicalshot">Chemicalshot</a> is Pony Town's <a href="https://www.youtube.com/watch?v=uKIFNfmYcFI">ATTACKING VERTICAL by femtanyl</a> and <a href="https://www.youtube.com/watch?v=Hmc41Zsb2Ns">ゴキブリの味 by MARETU</a><i>!</i>!
+<br>
+<a href="https://github.com/Corintheuss">Corintheuss</a> is Pony Town's <a href="https://www.youtube.com/watch?v=D_lf3g4cWeg">Mx. Sinister by I DONT KNOW HOW BUT THEY FOUND ME</a><i>!</i>!
 <br>
 <a href="https://github.com/disorderlyfashion">disorderlyfashion</a> is Pony Town's <a href="https://www.youtube.com/watch?v=jMxU2ToSunY">Miss Murder by AFI</a> and <a href="https://www.youtube.com/watch?v=rKdgl8OUKpk">Figure.09 by Linkin Park</a><i>!</i>!
 <br>
@@ -72,6 +76,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <a href="https://github.com/shurilong">shurilong</a> is Pony Town's <a href="https://www.youtube.com/watch?v=gOgpdp3lP8M">The Ballad Of Mona Lisa by Panic! At The Disco</a><i>!</i>!
 <br>
 <a href="https://github.com/star-employee">star-employee</a> is Pony Town's <a href="https://www.youtube.com/watch?v=wqPdeT6Jpdg">Wet by Dazey and the Scouts</a> and <a href="https://www.youtube.com/watch?v=rL-Zq4NXPoU">FOOL ME NOT by rattlepate</a><i>!</i>!
+<br>
+<a href="https://github.com/SukunaXRyomen">SukunaXRyomen</a> is Pony Town's <a href="https://www.youtube.com/watch?v=9xHmqRSlMoY">Playing Dead by And One</a><i>!</i>!
 <br>
 <a href="https://github.com/theemotionalside">theemotionalside</a> is Pony Town's <a href="https://www.youtube.com/watch?v=o-mrtmYisHE">The Heart Acoustic by Chonny Jash</a> and <a href="https://www.youtube.com/watch?v=qjk_OoWnPtk">Light by Chonny Jash</a><i>!</i>!
 <br>
