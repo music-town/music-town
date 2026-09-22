@@ -25,6 +25,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 </div>
 <img src="https://64.media.tumblr.com/aebf868441203ea08a905350f53f742a/2f3bd6cd9d8d1e57-8a/s2048x3072/d1716b88a057d710fce2065d382966a7d4ed45c8.gifv"></img>
 <h3>$${\color{#6A42BF}Solo\ songs!}$$</h3>
+<a href="https://github.com/ACE0FHEART5">ACE0FHEART5</a> is Pony Town's <a href="https://www.youtube.com/watch?v=jbZT-bwZD3c">streetcat ft. Nekomura Iroha by FLAVOR FOLEY</a> and <a href="https://www.youtube.com/watch?v=7qFfFVSerQo">High and Dry by Radiohead</a><i>!</i>!
+<br>
 <a href="https://github.com/AcxerSonnellino">AcxerSonnellino</a> is Pony Town's <a href="https://www.youtube.com/watch?v=eT4jgYQqE7I">Soldier Boy by The Shirelles</a> and <a href="https://www.youtube.com/watch?v=bFLDTcLBcZU">Class of 2013 by Mitski</a><i>!</i>!
 <br>
 <a href="https://github.com/andreslopper">andreslopper</a> is Pony Town's <a href="https://www.youtube.com/watch?v=_8ATsDqXPF0">Fear of a Blank Planet by Porcupine Tree</a><i>!</i>!
@@ -42,6 +44,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <a href="https://github.com/Corintheuss">Corintheuss</a> is Pony Town's <a href="https://www.youtube.com/watch?v=D_lf3g4cWeg">Mx. Sinister by I DONT KNOW HOW BUT THEY FOUND ME</a><i>!</i>!
 <br>
 <a href="https://github.com/denguemon">denguemon</a> is Pony Town's <a href="https://www.youtube.com/watch?v=Frvf9Oq8vgY">បំពេរ by Meas Saman</a><i>!</i>!
+<br>
+<a href="https://github.com/dexholder">dexholder</a> is Pony Town's <a href="https://www.youtube.com/watch?v=1Bp_hRVyr14">Lonely Girl by weezer</a><i>!</i>!
 <br>
 <a href="https://github.com/disorderlyfashion">disorderlyfashion</a> is Pony Town's <a href="https://www.youtube.com/watch?v=jMxU2ToSunY">Miss Murder by AFI</a> and <a href="https://www.youtube.com/watch?v=rKdgl8OUKpk">Figure.09 by Linkin Park</a><i>!</i>!
 <br>
@@ -128,4 +132,6 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <a href="https://github.com/cashreggister">cashreggister</a> -> To cashreggister, JVB SUCKERRR!! we'll go to their concert one day... you just so <a href="https://www.youtube.com/watch?v=afVu9zUv_2c">i like this by Joey Valence & Brae</a> - <b>THE MARTIAN</b>
 <br>
 <a href="https://github.com/Aspenolia">Aspenolia</a> -> I'd like to compliment Aspenolia as <a href="https://www.youtube.com/watch?v=egNb0DVaRoA">Breezeblocks by alt-J</a> - <b>MEMACHAI</b>
+<br>
+<a href="https://github.com/poisonedRitual">poisonedRitual</a> ->  uhmm if u can, poisonedritual aka kaz unfortunately reminds me a lot of <a href="https://www.youtube.com/watch?v=zxLyb9p0sqw">Chainsaw Suicide by penguinband</a>, if this is added I hope you heal soon kaz - <b>ANONYMOUS</b>
 <img src="https://64.media.tumblr.com/803bd64ba3d0890234117cc649afa380/2f3bd6cd9d8d1e57-86/s2048x3072/dce51fa9c00762929641f940ea3774915b38698b.gifv"></img>
