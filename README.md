@@ -51,6 +51,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/dr-vanta">dr-vanta</a> is Pony Town's <a href="https://www.youtube.com/watch?v=5-rfnjXj91Y">Battle Vs Dr. Vanta by Rxpp/Ray</a> and <a href="https://www.youtube.com/watch?v=W0QD3_2VUlE">ひとりぼっちクラブ (feat. 初音ミク) by MushiP</a><i>!</i>!
 <br>
+<a href="https://github.com/ddoomclock">ddoomclock</a> is Pony Town's <a href="https://www.youtube.com/watch?v=bb-EjUlzWME">Machine Girl by Weevildoing feat. デフォ子</a><i>!</i>!
+<br>
 <a href="https://github.com/DucksEatBreads">DucksEatBreads</a> is Pony Town's <a href="https://www.youtube.com/watch?v=sfYNyZha0vw">Soup is Good Food by Dead Kennedys</a> and <a href="https://www.youtube.com/watch?v=uE60iiHvabk">It's Beginning to Look A Lot Like Christmas by Bing Crosby</a><i>!</i>!
 <br>
 <a href="https://github.com/earl-grey-mp4">earl-grey-mp4</a> is Pony Town's <a href="https://www.youtube.com/watch?v=FCCq7PYrr4Q">You've Got Mail! feat. Defoko & Adachi Rei by Phantoskii</a> and <a href="https://www.youtube.com/watch?v=C0ruAy8TpPo">Let You Break My Heart Again by Laufey</a><i>!</i>!
@@ -66,6 +68,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <a href="https://github.com/Ilove-him">Ilove-him</a> is Pony Town's <a href="https://www.youtube.com/watch?v=QX2dqXr8mOU">love. by wave to earth</a> and <a href="https://www.youtube.com/watch?v=gVS_ZLBPEck">Forever by The Little Dippers</a><i>!</i>!
 <br>
 <a href="https://github.com/itrap-2245">itrap-2245</a> is Pony Town's <a href="https://www.youtube.com/watch?v=s-SVou8FtVw">Getting Over You by Hot Freaks</a> and <a href="https://www.youtube.com/watch?v=bb-EjUlzWME">Machine Girl ft. Defoko by WeevilDoing</a><i>!</i>!
+<br>
+<a href="https://github.com/kazutorawr">kazutorawr</a> is Pony Town's <a href="https://www.youtube.com/watch?v=XBMAXXy0OY4">Ghost by Kazutora Hanemiya (CV:Toki Shunichi)</a> and <a href="https://www.youtube.com/watch?v=s70kXs0vjWo">Izana Kurokawa (CV:Nobunaga Shimazaki)</a><i>!</i>!
 <br>
 <a href="https://github.com/kittydummy">kittydummy</a> is Pony Town's <a href="https://www.youtube.com/watch?v=HnEhgFcm8bs">Burnt Rice (feat. Yung GEMMY) by Shawn Wasabi</a><i>!</i>!
 <br>
@@ -134,4 +138,6 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <a href="https://github.com/Aspenolia">Aspenolia</a> -> I'd like to compliment Aspenolia as <a href="https://www.youtube.com/watch?v=egNb0DVaRoA">Breezeblocks by alt-J</a> - <b>MEMACHAI</b>
 <br>
 <a href="https://github.com/poisonedRitual">poisonedRitual</a> ->  uhmm if u can, poisonedritual aka kaz unfortunately reminds me a lot of <a href="https://www.youtube.com/watch?v=zxLyb9p0sqw">Chainsaw Suicide by penguinband</a>, if this is added I hope you heal soon kaz - <b>ANONYMOUS</b>
+<br>
+<a href="https://github.com/ddoomclock">ddoomclock</a> -> NO SONGS, YOU ARE AND WERE NOT ANNOYING. YOU HAD DONE NO WRONG; WE JUST FORGOT TO PUT YOU ON THERE. WE HAD THE LINK OPEN, BUT HAD JUST FORGOT, SO SORRY ABOUT THAT! HOPE YOU ARE DOING WELL! WE THANK YOU FOR REMINDING US, ACTUALLY. AND FOR YOUR PATIENCE! <3 - <b>MUSIC TOWN TEAM</b>
 <img src="https://64.media.tumblr.com/803bd64ba3d0890234117cc649afa380/2f3bd6cd9d8d1e57-86/s2048x3072/dce51fa9c00762929641f940ea3774915b38698b.gifv"></img>
