@@ -1,4 +1,4 @@
-<p align="center"> <a href="https://www.youtube.com/watch?v=RY18X10m77U"><img src="https://komarev.com/ghpvc/?username=music-town&style=flat-square&label=SONGS+LISTENED+TO&abbreviated=false&base=20"></a></p>
+<p align="center"> <a href="https://www.youtube.com/watch?v=RY18X10m77U"><img src="https://komarev.com/ghpvc/?username=music-town&style=flat-square&label=SONGS+LISTENED+TO&abbreviated=false"></a></p>
 <h3>$${\color{#723C87}Welcome\ to\ the\ Music\ Town\ page!}$$</h3>
 <img align="right" src="https://media.tenor.com/SrhuBclF5nYAAAAi/octavia-melody-dj-pon3.gif" width=250>
 <a href="https://music-town.straw.page">Put yourself in our music  list! <i>(max 2 songs for 1 person unless complimenting/friend groups)</i></a>
