@@ -53,7 +53,7 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/dr-vanta">dr-vanta</a> is Pony Town's <a href="https://www.youtube.com/watch?v=5-rfnjXj91Y">Battle Vs Dr. Vanta by Rxpp/Ray</a> and <a href="https://www.youtube.com/watch?v=eYHUeL2jZNg">How Many More Now by [[LUCA]]</a><i>!</i>!
 <br>
-<a href="https://github.com/ddoomclock">ddoomclock</a> is Pony Town's <a href="https://www.youtube.com/watch?v=bb-EjUlzWME">Machine Girl by Weevildoing feat. デフォ子</a><i>!</i>!
+<a href="https://github.com/ddoomclock">ddoomclock</a> is Pony Town's <a href="https://www.youtube.com/watch?v=bb-EjUlzWME">Machine Girl feat. デフォ子 by Weevildoing</a><i>!</i>!
 <br>
 <a href="https://github.com/DucksEatBreads">DucksEatBreads</a> is Pony Town's <a href="https://www.youtube.com/watch?v=sfYNyZha0vw">Soup is Good Food by Dead Kennedys</a> and <a href="https://www.youtube.com/watch?v=uE60iiHvabk">It's Beginning to Look A Lot Like Christmas by Bing Crosby</a><i>!</i>!
 <br>
@@ -69,7 +69,7 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/Ilove-him">Ilove-him</a> is Pony Town's <a href="https://www.youtube.com/watch?v=QX2dqXr8mOU">love. by wave to earth</a> and <a href="https://www.youtube.com/watch?v=gVS_ZLBPEck">Forever by The Little Dippers</a><i>!</i>!
 <br>
-<a href="https://github.com/itrap-2245">itrap-2245</a> is Pony Town's <a href="https://www.youtube.com/watch?v=s-SVou8FtVw">Getting Over You by Hot Freaks</a> and <a href="https://www.youtube.com/watch?v=bb-EjUlzWME">Machine Girl ft. Defoko by WeevilDoing</a><i>!</i>!
+<a href="https://github.com/itrap-2245">itrap-2245</a> is Pony Town's <a href="https://www.youtube.com/watch?v=s-SVou8FtVw">Getting Over You by Hot Freaks</a><i>!</i>!
 <br>
 <a href="https://github.com/Jeverus">Jeverus</a> is Pony Town's <a href="https://www.youtube.com/watch?v=2UznYJYpQGo">Survival For The Fittest (Slasher VS Guest 1337 LMS) by The FORSAKEN OST Team</a><i>!</i>!
 <br>
