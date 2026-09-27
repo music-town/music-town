@@ -43,13 +43,15 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/Corintheuss">Corintheuss</a> is Pony Town's <a href="https://www.youtube.com/watch?v=D_lf3g4cWeg">Mx. Sinister by I DONT KNOW HOW BUT THEY FOUND ME</a><i>!</i>!
 <br>
+<a href="https://github.com/demonbell3">demonbell3</a> is Pony Town's <a href="https://www.youtube.com/watch?v=CSvFpBOe8eY">Chop Suey! by System Of A Down</a><i>!</i>!
+<br>
 <a href="https://github.com/denguemon">denguemon</a> is Pony Town's <a href="https://www.youtube.com/watch?v=Frvf9Oq8vgY">បំពេរ by Meas Saman</a><i>!</i>!
 <br>
 <a href="https://github.com/dexholder">dexholder</a> is Pony Town's <a href="https://www.youtube.com/watch?v=1Bp_hRVyr14">Lonely Girl by weezer</a><i>!</i>!
 <br>
 <a href="https://github.com/disorderlyfashion">disorderlyfashion</a> is Pony Town's <a href="https://www.youtube.com/watch?v=jMxU2ToSunY">Miss Murder by AFI</a> and <a href="https://www.youtube.com/watch?v=rKdgl8OUKpk">Figure.09 by Linkin Park</a><i>!</i>!
 <br>
-<a href="https://github.com/dr-vanta">dr-vanta</a> is Pony Town's <a href="https://www.youtube.com/watch?v=5-rfnjXj91Y">Battle Vs Dr. Vanta by Rxpp/Ray</a> and <a href="https://www.youtube.com/watch?v=W0QD3_2VUlE">ひとりぼっちクラブ (feat. 初音ミク) by MushiP</a><i>!</i>!
+<a href="https://github.com/dr-vanta">dr-vanta</a> is Pony Town's <a href="https://www.youtube.com/watch?v=5-rfnjXj91Y">Battle Vs Dr. Vanta by Rxpp/Ray</a> and <a href="https://www.youtube.com/watch?v=eYHUeL2jZNg">How Many More Now by [[LUCA]]</a><i>!</i>!
 <br>
 <a href="https://github.com/ddoomclock">ddoomclock</a> is Pony Town's <a href="https://www.youtube.com/watch?v=bb-EjUlzWME">Machine Girl by Weevildoing feat. デフォ子</a><i>!</i>!
 <br>
@@ -68,6 +70,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <a href="https://github.com/Ilove-him">Ilove-him</a> is Pony Town's <a href="https://www.youtube.com/watch?v=QX2dqXr8mOU">love. by wave to earth</a> and <a href="https://www.youtube.com/watch?v=gVS_ZLBPEck">Forever by The Little Dippers</a><i>!</i>!
 <br>
 <a href="https://github.com/itrap-2245">itrap-2245</a> is Pony Town's <a href="https://www.youtube.com/watch?v=s-SVou8FtVw">Getting Over You by Hot Freaks</a> and <a href="https://www.youtube.com/watch?v=bb-EjUlzWME">Machine Girl ft. Defoko by WeevilDoing</a><i>!</i>!
+<br>
+<a href="https://github.com/Jeverus">Jeverus</a> is Pony Town's <a href="https://www.youtube.com/watch?v=2UznYJYpQGo">Survival For The Fittest (Slasher VS Guest 1337 LMS) by The FORSAKEN OST Team</a><i>!</i>!
 <br>
 <a href="https://github.com/kazutorawr">kazutorawr</a> is Pony Town's <a href="https://www.youtube.com/watch?v=XBMAXXy0OY4">Ghost by Kazutora Hanemiya (CV:Toki Shunichi)</a> and <a href="https://www.youtube.com/watch?v=s70kXs0vjWo">Izana Kurokawa (CV:Nobunaga Shimazaki)</a><i>!</i>!
 <br>
@@ -108,6 +112,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <a href="https://github.com/VArtfultrust">VArtfultrust</a> is Pony Town's <a href="https://www.youtube.com/watch?v=ngCYjrlsXYk">Time Is Ticking by Bazz Boyz</a><i>!</i>!
 <br>
 <a href="https://github.com/viimsey">viimsey</a> is Pony Town's <a href="https://www.youtube.com/watch?v=-QVcPJ_yWa8">Sweet Dreams by Left Boy</a> and <a href="https://www.youtube.com/watch?v=_V17JN76uxc">Ancient Dreams in a Modern Land by MARINA</a><i>!</i>!
+<br>
+<a href="https://github.com/VOXMANIA">VOXMANIA</a> is Pony Town's <a href="https://www.youtube.com/watch?v=iM7IsuLff1M">Father-Daughter Dance by JJ Heller</a><i>!</i>!
 <br>
 <a href="https://github.com/XANDREOHZANZAN">XANDREOHZANZAN</a> is Pony Town's <a href="https://www.youtube.com/watch?v=Y0EcKR05Ac4">マジカルドクター by MARETU</a><i>!</i>! <b><i>(EPILEPSY WARNING FOR THE VIDEO!)</i></b>
 <br>
