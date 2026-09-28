@@ -53,7 +53,7 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/ddoomclock">ddoomclock</a> is Pony Town's <a href="https://www.youtube.com/watch?v=bb-EjUlzWME">Machine Girl feat. デフォ子 by Weevildoing</a><i>!</i>!
 <br>
-<a href="https://github.com/DOR-fic"></a> is Pony Town's <a href="https://www.youtube.com/watch?v=ipS6nUzpuMI">Infinite by Taylor Smyth and Andy Bane</a> and <a href="https://www.youtube.com/watch?v=s6iowcH--Q0">Hero by Miss Papaya</a><i>!</i>!
+<a href="https://github.com/DOR-fic">DOR-fic</a> is Pony Town's <a href="https://www.youtube.com/watch?v=ipS6nUzpuMI">Infinite by Taylor Smyth and Andy Bane</a> and <a href="https://www.youtube.com/watch?v=s6iowcH--Q0">Hero by Miss Papaya</a><i>!</i>!
 <br>
 <a href="https://github.com/dr-vanta">dr-vanta</a> is Pony Town's <a href="https://www.youtube.com/watch?v=5-rfnjXj91Y">Battle Vs Dr. Vanta by Rxpp/Ray</a> and <a href="https://www.youtube.com/watch?v=eYHUeL2jZNg">How Many More Now by [[LUCA]]</a><i>!</i>!
 <br>
