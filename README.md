@@ -51,9 +51,11 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/disorderlyfashion">disorderlyfashion</a> is Pony Town's <a href="https://www.youtube.com/watch?v=jMxU2ToSunY">Miss Murder by AFI</a> and <a href="https://www.youtube.com/watch?v=rKdgl8OUKpk">Figure.09 by Linkin Park</a><i>!</i>!
 <br>
-<a href="https://github.com/dr-vanta">dr-vanta</a> is Pony Town's <a href="https://www.youtube.com/watch?v=5-rfnjXj91Y">Battle Vs Dr. Vanta by Rxpp/Ray</a> and <a href="https://www.youtube.com/watch?v=eYHUeL2jZNg">How Many More Now by [[LUCA]]</a><i>!</i>!
-<br>
 <a href="https://github.com/ddoomclock">ddoomclock</a> is Pony Town's <a href="https://www.youtube.com/watch?v=bb-EjUlzWME">Machine Girl feat. デフォ子 by Weevildoing</a><i>!</i>!
+<br>
+<a href="https://github.com/DOR-fic"></a> is Pony Town's <a href="https://www.youtube.com/watch?v=ipS6nUzpuMI">Infinite by Taylor Smyth and Andy Bane</a> and <a href="https://www.youtube.com/watch?v=s6iowcH--Q0">Hero by Miss Papaya</a><i>!</i>!
+<br>
+<a href="https://github.com/dr-vanta">dr-vanta</a> is Pony Town's <a href="https://www.youtube.com/watch?v=5-rfnjXj91Y">Battle Vs Dr. Vanta by Rxpp/Ray</a> and <a href="https://www.youtube.com/watch?v=eYHUeL2jZNg">How Many More Now by [[LUCA]]</a><i>!</i>!
 <br>
 <a href="https://github.com/DucksEatBreads">DucksEatBreads</a> is Pony Town's <a href="https://www.youtube.com/watch?v=sfYNyZha0vw">Soup is Good Food by Dead Kennedys</a> and <a href="https://www.youtube.com/watch?v=uE60iiHvabk">It's Beginning to Look A Lot Like Christmas by Bing Crosby</a><i>!</i>!
 <br>
@@ -99,7 +101,7 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/star-employee">star-employee</a> is Pony Town's <a href="https://www.youtube.com/watch?v=wqPdeT6Jpdg">Wet by Dazey and the Scouts</a> and <a href="https://www.youtube.com/watch?v=rL-Zq4NXPoU">FOOL ME NOT by rattlepate</a><i>!</i>!
 <br>
-<a href="https://github.com/SukunaXRyomen">SukunaXRyomen</a> is Pony Town's <a href="https://www.youtube.com/watch?v=9xHmqRSlMoY">Playing Dead by And One</a><i>!</i>!
+<a href="https://github.com/SukunaXRyomen">SukunaXRyomen</a> is Pony Town's <a href="https://www.youtube.com/watch?v=9xHmqRSlMoY">Playing Dead by And One</a> and <a href="https://www.youtube.com/watch?v=51RBKuhfoo0">破誡の果て by Malice Mizer</a><i>!</i>!
 <br>
 <a href="https://github.com/theemotionalside">theemotionalside</a> is Pony Town's <a href="https://www.youtube.com/watch?v=o-mrtmYisHE">The Heart Acoustic by Chonny Jash</a> and <a href="https://www.youtube.com/watch?v=qjk_OoWnPtk">Light by Chonny Jash</a><i>!</i>!
 <br>
@@ -118,6 +120,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <a href="https://github.com/XANDREOHZANZAN">XANDREOHZANZAN</a> is Pony Town's <a href="https://www.youtube.com/watch?v=Y0EcKR05Ac4">マジカルドクター by MARETU</a><i>!</i>! <b><i>(EPILEPSY WARNING FOR THE VIDEO!)</i></b>
 <br>
 <a href="https://github.com/yellowdeltarune">yellowdeltarune</a> is Pony Town's <a href="https://www.youtube.com/watch?v=kXp2H7GbYis">Stop, Criminell! by Toby Fox</a><i>!</i>!
+<br>
+<a href="https://github.com/yvoisen">yvoisen</a> is Pony Town's <a href="https://www.youtube.com/watch?v=Z1BM7TUJ-MM">ladygaga by anzyeity</a> and <a href="https://www.youtube.com/watch?v=7f0K30fDgS0">Cracker Island feat. Thundercat by Gorillaz</a><i>!</i>!
 <br>
 <a href="https://github.com/zerstorungswalze">zerstorungswalze</a> is Pony Town's <a href="https://www.youtube.com/watch?v=qXpqxyiHMPc">Anthropophagous - On Golden Wings of Ignorance by Utarm</a><i>!</i>!
 <img src="https://64.media.tumblr.com/79a30c28afa3da5c28d0d0c908fa2569/2f3bd6cd9d8d1e57-04/s2048x3072/747a33516aa668a224d1d3e57c1402055cc5f0eb.gifv"></img>
