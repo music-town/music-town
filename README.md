@@ -93,6 +93,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/OlgaSinxer">OlgaSinxer</a> is Pony Town's <a href="https://www.youtube.com/watch?v=fVfixTM7OsA">HEAD UP by femtanyl</a><i>!</i>!
 <br>
+<a href="https://github.com/pearlsfortears">pearlsfortears</a> is Pony Town's <a href="https://www.youtube.com/watch?v=2qAIyQtQ0mI">Pop Star by coco & clair clair</a><i>!</i>!
+<br>
 <a href="https://github.com/plsticpup">plsticpup</a> is Pony Town's <a href="https://www.youtube.com/watch?v=gvyHNyWfQRQ">Swerve City by Deftones</a> and <a href="https://www.youtube.com/watch?v=RYnFIRc0k6E">Rollin' (Air Raid Vehicle) by limpbizkit</a><i>!</i>!
 <br>
 <a href="https://github.com/poisonedRitual">poisonedRitual</a> is Pony Town's <a href="https://www.youtube.com/watch?v=y8p9IBZQURI">crash by bunii</a> and <a href="https://www.youtube.com/watch?v=8EXdAednIGg">never enough by otuka</a><i>!</i>!
