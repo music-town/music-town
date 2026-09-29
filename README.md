@@ -119,6 +119,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/VArtfultrust">VArtfultrust</a> is Pony Town's <a href="https://www.youtube.com/watch?v=ngCYjrlsXYk">Time Is Ticking by Bazz Boyz</a><i>!</i>!
 <br>
+<a href="https://github.com/venetianblindman">venetianblindman</a> is Pony Town's <a href="https://www.youtube.com/watch?v=My-WSM-6QlE">Live & Learn by Crush 40</a> and <a href="https://www.youtube.com/watch?v=VlhLbk_SlwI">Beauty by churgney gurgney, MaimyMayo, SabreFlash64 and SunkermacGunker</a><i>!</i>!
+<br>
 <a href="https://github.com/viimsey">viimsey</a> is Pony Town's <a href="https://www.youtube.com/watch?v=-QVcPJ_yWa8">Sweet Dreams by Left Boy</a> and <a href="https://www.youtube.com/watch?v=_V17JN76uxc">Ancient Dreams in a Modern Land by MARINA</a><i>!</i>!
 <br>
 <a href="https://github.com/VOXMANIA">VOXMANIA</a> is Pony Town's <a href="https://www.youtube.com/watch?v=iM7IsuLff1M">Father-Daughter Dance by JJ Heller</a><i>!</i>!
