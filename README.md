@@ -69,6 +69,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/Gamblersi">Gamblersi</a> is Pony Town's <a href="https://www.youtube.com/watch?v=Lzj81rjuPcQ">Casino Royale by Derivakat</a> and <a href="https://www.youtube.com/watch?v=sCNbFjZsAWc">Roll or Die by Rockit Music</a><i>!</i>!
 <br>
+<a href="https://github.com/Heart0fGold">Heart0fGold</a> is Pony Town's <a href="https://www.youtube.com/watch?v=TZCfydWF48c">The Four Seasons: Winter by Antonio Vivaldi</a> and <a href="https://www.youtube.com/watch?v=v7GMG1aLyPw">Sonne by Rammstein</a><i>!</i>!
+<br>
 <a href="https://github.com/Ilove-him">Ilove-him</a> is Pony Town's <a href="https://www.youtube.com/watch?v=QX2dqXr8mOU">love. by wave to earth</a> and <a href="https://www.youtube.com/watch?v=gVS_ZLBPEck">Forever by The Little Dippers</a><i>!</i>!
 <br>
 <a href="https://github.com/itrap-2245">itrap-2245</a> is Pony Town's <a href="https://www.youtube.com/watch?v=s-SVou8FtVw">Getting Over You by Hot Freaks</a><i>!</i>!
