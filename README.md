@@ -107,6 +107,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/SukunaXRyomen">SukunaXRyomen</a> is Pony Town's <a href="https://www.youtube.com/watch?v=9xHmqRSlMoY">Playing Dead by And One</a> and <a href="https://www.youtube.com/watch?v=51RBKuhfoo0">破誡の果て by Malice Mizer</a><i>!</i>!
 <br>
+<a href="https://github.com/supernova-remnants">supernova-remnants</a> is Pony Town's <a href="https://www.youtube.com/watch?v=GRHpFHKhlRo">always in one place by mindvacy</a><i>!</i>! 
+<br>
 <a href="https://github.com/theemotionalside">theemotionalside</a> is Pony Town's <a href="https://www.youtube.com/watch?v=o-mrtmYisHE">The Heart Acoustic by Chonny Jash</a> and <a href="https://www.youtube.com/watch?v=qjk_OoWnPtk">Light by Chonny Jash</a><i>!</i>!
 <br>
 <a href="https://github.com/TlNKYWlNKY">TlNKYWlNKY</a> is Pony Town's <a href="https://www.youtube.com/watch?v=GWf9_qSrnOM">Flower Man by Toby Fox</a><i>!</i>!
