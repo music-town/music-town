@@ -25,6 +25,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 </div>
 <img src="https://64.media.tumblr.com/aebf868441203ea08a905350f53f742a/2f3bd6cd9d8d1e57-8a/s2048x3072/d1716b88a057d710fce2065d382966a7d4ed45c8.gifv"></img>
 <h3>$${\color{#6A42BF}Solo\ songs!}$$</h3>
+<a href="https://github.com/5P-25">5P-25</a> is Pony Town's <a href="https://www.youtube.com/watch?v=fXgSpTIfqKs">Random Gods (Theme III) by James Primate</a><i>!</i>!
+<br>
 <a href="https://github.com/ACE0FHEART5">ACE0FHEART5</a> is Pony Town's <a href="https://www.youtube.com/watch?v=jbZT-bwZD3c">streetcat ft. Nekomura Iroha by FLAVOR FOLEY</a> and <a href="https://www.youtube.com/watch?v=7qFfFVSerQo">High and Dry by Radiohead</a><i>!</i>!
 <br>
 <a href="https://github.com/AcxerSonnellino">AcxerSonnellino</a> is Pony Town's <a href="https://www.youtube.com/watch?v=eT4jgYQqE7I">Soldier Boy by The Shirelles</a> and <a href="https://www.youtube.com/watch?v=bFLDTcLBcZU">Class of 2013 by Mitski</a><i>!</i>!
