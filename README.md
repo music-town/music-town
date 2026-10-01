@@ -73,6 +73,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/Heart0fGold">Heart0fGold</a> is Pony Town's <a href="https://www.youtube.com/watch?v=TZCfydWF48c">The Four Seasons: Winter by Antonio Vivaldi</a> and <a href="https://www.youtube.com/watch?v=v7GMG1aLyPw">Sonne by Rammstein</a><i>!</i>!
 <br>
+<a href="https://github.com/Iiquidsmooth">Iiquidsmooth</a> is Pony Town's <a href="https://www.youtube.com/watch?v=LpxT9TLGoLI">Rät by Penelope Scott</a> and <a href="https://www.youtube.com/watch?v=F0xdQ8ES9fc">Arms Tonite by Mother Mother</a><i>!</i>!
+<br>
 <a href="https://github.com/Ilove-him">Ilove-him</a> is Pony Town's <a href="https://www.youtube.com/watch?v=QX2dqXr8mOU">love. by wave to earth</a> and <a href="https://www.youtube.com/watch?v=gVS_ZLBPEck">Forever by The Little Dippers</a><i>!</i>!
 <br>
 <a href="https://github.com/itrap-2245">itrap-2245</a> is Pony Town's <a href="https://www.youtube.com/watch?v=s-SVou8FtVw">Getting Over You by Hot Freaks</a><i>!</i>!
