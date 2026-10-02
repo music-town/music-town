@@ -79,6 +79,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/itrap-2245">itrap-2245</a> is Pony Town's <a href="https://www.youtube.com/watch?v=s-SVou8FtVw">Getting Over You by Hot Freaks</a><i>!</i>!
 <br>
+<a href="https://github.com/Itrapp-d">Itrapp-d</a> is Pony Town's <a href="https://www.youtube.com/watch?v=valVixMpzQY">One Way Or Another by Blondie</a> and <a href="https://www.youtube.com/watch?v=rWxUtq4gIak">God-ish by Will Stetson</a><i>!</i>!
+<br>
 <a href="https://github.com/Jeverus">Jeverus</a> is Pony Town's <a href="https://www.youtube.com/watch?v=2UznYJYpQGo">Survival For The Fittest (Slasher VS Guest 1337 LMS) by The FORSAKEN OST Team</a><i>!</i>!
 <br>
 <a href="https://github.com/kazutorawr">kazutorawr</a> is Pony Town's <a href="https://www.youtube.com/watch?v=XBMAXXy0OY4">Ghost by Kazutora Hanemiya (CV:Toki Shunichi)</a> and <a href="https://www.youtube.com/watch?v=s70kXs0vjWo">Izana Kurokawa (CV:Nobunaga Shimazaki)</a><i>!</i>!
@@ -104,8 +106,6 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <a href="https://github.com/poisonedRitual">poisonedRitual</a> is Pony Town's <a href="https://www.youtube.com/watch?v=y8p9IBZQURI">crash by bunii</a> and <a href="https://www.youtube.com/watch?v=8EXdAednIGg">never enough by otuka</a><i>!</i>!
 <br>
 <a href="https://github.com/scagalicous">scagalicous</a> is Pony Town's <a href="https://www.youtube.com/watch?v=JOJ0Qk85cJA">Cicadas by Machine Girl</a><i>!</i>!
-<br>
-<a href="https://github.com/shurilong">shurilong</a> is Pony Town's <a href="https://www.youtube.com/watch?v=gOgpdp3lP8M">The Ballad Of Mona Lisa by Panic! At The Disco</a><i>!</i>!
 <br>
 <a href="https://github.com/star-employee">star-employee</a> is Pony Town's <a href="https://www.youtube.com/watch?v=wqPdeT6Jpdg">Wet by Dazey and the Scouts</a> and <a href="https://www.youtube.com/watch?v=rL-Zq4NXPoU">FOOL ME NOT by rattlepate</a><i>!</i>!
 <br>
@@ -170,4 +170,6 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <a href="https://github.com/ddoomclock">ddoomclock</a> -> NO SONGS, YOU ARE AND WERE NOT ANNOYING. YOU HAD DONE NO WRONG; WE JUST FORGOT TO PUT YOU ON THERE. WE HAD THE LINK OPEN, BUT HAD JUST FORGOT, SO SORRY ABOUT THAT! HOPE YOU ARE DOING WELL! WE THANK YOU FOR REMINDING US, ACTUALLY. AND FOR YOUR PATIENCE! <3 - <b>MUSIC TOWN TEAM</b>
 <br>
 <a href="https://github.com/emariyaoi">emariyaoi</a> -> I want to compliment my best friend ever Emariya with <a href="https://www.youtube.com/watch?v=en5MF4VIjfY">If I Leave by Mitski</a> >_< hi milo you are my best friend ever and we will be bffs until the sun explodes Alright? - <a href="https://github.com/witheringheights">witheringheights</a>
+<br>
+<a href="https://github.com/Itrapp-d">Itrapp-d</a> -> DON'T APOLOGISE FOR THE "SPAM", WE HAVE FUN DOING THESE REQUESTS SO DON'T WORRY ABOUT THAT! - <b>MUSIC TOWN TEAM</b>
 <img src="https://64.media.tumblr.com/803bd64ba3d0890234117cc649afa380/2f3bd6cd9d8d1e57-86/s2048x3072/dce51fa9c00762929641f940ea3774915b38698b.gifv"></img>
