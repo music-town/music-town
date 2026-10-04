@@ -157,6 +157,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <a href="https://github.com/theemotionalside">theemotionalside</a> and <a href="https://github.com/venetianblindman">venetianblindman</a> are Pony Town's <a href="https://www.youtube.com/watch?v=D_Mm-ongOyM">WE'RE GONNA WIN by Chonny Jash</a> duo<i>!</i>! <b><i>(EPILEPSY WARNING FOR THE VIDEO)</i></b>
 <br>
 <a href="https://github.com/dares4swears">dares4swears</a> and <a href="https://github.com/flairforthedramatic">flairforthedramatic</a> are Pony Town's <a href="https://www.youtube.com/watch?v=N5X-OA3HVMA">Kiss Me Now by Pierce The Veil</a> duo<i>!</i>!
+<br>
+<a href="https://github.com/a-dead-plate">a-dead-plate</a>, <a href="https://github.com/dr-vanta">dr-vanta</a>, <a href="https://github.com/DRmRETRO">DRmRETRO</a>, <a href="https://en.pronouns.page/@phantasydreams">phantasydreams</a> and <a href="https://github.com/suqiparkrr">suqiparkrr</a> are Pony Town's <a href="https://www.youtube.com/watch?v=kjU0LXvYVig">Forget Me Not by Laufey</a> quintet<i>!</i>!
 <img src="https://64.media.tumblr.com/f2167efcf0efd4f326e32411fef3f9d2/2f3bd6cd9d8d1e57-a5/s2048x3072/27714dfb479b5655e07559ab925534a94470f1cd.gifv"></img>
 <h3>$${\color{#FFBFF8}Complimenting\ songs!}$$</h3>
 <a href="https://github.com/star-employee">star-employee</a> -> This <a href="https://www.youtube.com/watch?v=4BIQvdIppyk">song</a> reminds me a lot of you (Patila - Missed the Stranger) - <a href="https://github.com/viimsey">viimsey</a>
