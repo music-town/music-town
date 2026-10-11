@@ -172,6 +172,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <a href="https://github.com/a-dead-plate">a-dead-plate</a>, <a href="https://github.com/dr-vanta">dr-vanta</a>, <a href="https://github.com/DRmRETRO">DRmRETRO</a>, <a href="https://en.pronouns.page/@phantasydreams">phantasydreams</a> and <a href="https://github.com/suqiparkrr">suqiparkrr</a> are Pony Town's <a href="https://www.youtube.com/watch?v=kjU0LXvYVig">Forget Me Not by Laufey</a> quintet<i>!</i>!
 <br>
 <a href="https://github.com/biteofme">biteofme</a> and <b><i>prreli</i></b> are Pony Town's <a href="https://www.youtube.com/watch?v=xg_Y7Or_hWM">Last Night on Earth by Green Day</a> duo<i>!</i>!
+<br>
+<a href="https://github.com/Doxdxo">Doxdxo</a> and <a href="https://github.com/mayonnaiseu">mayonnaiseu</a> are Pony Town's <a href="https://www.youtube.com/watch?v=y_JreyZc3pk">Not Another Song About Love by Hollywood Ending</a> duo<i>!</i>!
 <img src="https://64.media.tumblr.com/f2167efcf0efd4f326e32411fef3f9d2/2f3bd6cd9d8d1e57-a5/s2048x3072/27714dfb479b5655e07559ab925534a94470f1cd.gifv"></img>
 <h3>$${\color{#FFBFF8}Complimenting\ songs!}$$</h3>
 <a href="https://github.com/star-employee">star-employee</a> -> This <a href="https://www.youtube.com/watch?v=4BIQvdIppyk">song</a> reminds me a lot of you (Patila - Missed the Stranger) - <a href="https://github.com/viimsey">viimsey</a>
