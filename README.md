@@ -118,6 +118,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/poisonedRitual">poisonedRitual</a> is Pony Town's <a href="https://www.youtube.com/watch?v=y8p9IBZQURI">crash by bunii</a> and <a href="https://www.youtube.com/watch?v=8EXdAednIGg">never enough by otuka</a><i>!</i>!
 <br>
+<a href="https://github.com/plvsticdoll">plvsticdoll</a> is Pony Town's <a href="https://www.youtube.com/watch?v=34O4TxvuEKE">Ma Meilleure Ennemie feat. Coldplay by Stromae, Pomme, and Arcane</a> and <a href="https://www.youtube.com/watch?v=GkT_u4uiD2w">TWICE REMOVED by Jane Remover</a><i>!</i>!
+<br>
 <a href="https://github.com/qnakin">qnakin</a> is Pony Town's <a href="https://www.youtube.com/watch?v=JMs1asYZ_SU">Edelwiss by The Sound of Music</a><i>!</i>!
 <br>
 <a href="https://github.com/scagalicous">scagalicous</a> is Pony Town's <a href="https://www.youtube.com/watch?v=JOJ0Qk85cJA">Cicadas by Machine Girl</a><i>!</i>!
