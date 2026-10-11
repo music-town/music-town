@@ -97,6 +97,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/mandela-net">mandela-net</a> is Pony Town's <a href="https://www.youtube.com/watch?v=2mhea--CfpI">BAD LUCK! by Jhariah</a> and <a href="https://www.youtube.com/watch?v=VWx9WoEYb5E">In My Room by JULIA WOLF</a><i>!</i>!
 <br>
+<a href="https://github.com/mapleSyrup-dot">mapleSyrup-dot</a> is Pony Town's <a href="https://www.youtube.com/watch?v=ZPNqub966Tw">The Zombie Song by Stephanie Mabey</a><i>!</i>!
+<br>
 <a href="https://github.com/monachgrievings">monachgrievings</a> is Pony Town's <a href="https://www.youtube.com/watch?v=-bQhQ59TTtM">Toes by Glass Animals</a> and <a href="https://www.youtube.com/watch?v=zWKasrXGXoc">Wishes by Foolish Pride</a><i>!</i>!
 <br>
 <a href="https://github.com/MY-BLOODY-VALENTlNE">MY-BLOODY-VALENTlNE</a> is Pony Town's <a href="https://www.youtube.com/watch?v=4nE1g3s7pDQ">The Ballad of Harry Warden by Diechotomy</a><i>!</i>!
