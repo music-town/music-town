@@ -105,6 +105,9 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/naturalharmoniaa">naturalharmoniaa</a> is Pony Town's <a href="https://www.youtube.com/watch?v=I37l6C7UB5w">Nope your too late i already died by wifiskeleton</a><i>!</i>!
 <br>
+<a href="https://github.com/NocturnalWhisper">NocturnalWhisper</a> is Pony Town's <a href="https://www.youtube.com/watch?v=Ytc6lkHYW_M">
+無間嫉妬劇場 [666] by Shinra-Bansho</a><i>!</i>!
+<br>
 <a href="https://github.com/OHBUNNYBUNNY">OHBUNNYBUNNY</a> is Pony Town's <a href="https://www.youtube.com/watch?v=hKo59kh-WBA">My Way by KATSEYE</a><i>!</i>!
 <br>
 <a href="https://github.com/OlgaSinxer">OlgaSinxer</a> is Pony Town's <a href="https://www.youtube.com/watch?v=fVfixTM7OsA">HEAD UP by femtanyl</a><i>!</i>!
