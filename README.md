@@ -195,4 +195,6 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <a href="https://github.com/emariyaoi">emariyaoi</a> -> I want to compliment my best friend ever Emariya with <a href="https://www.youtube.com/watch?v=en5MF4VIjfY">If I Leave by Mitski</a> >_< hi milo you are my best friend ever and we will be bffs until the sun explodes Alright? - <a href="https://github.com/witheringheights">witheringheights</a>
 <br>
 <a href="https://github.com/Itrapp-d">Itrapp-d</a> -> DON'T APOLOGISE FOR THE "SPAM", WE HAVE FUN DOING THESE REQUESTS SO DON'T WORRY ABOUT THAT! - <b>MUSIC TOWN TEAM</b>
+<br>
+  <a href="https://github.com/AdiosT0reador">AdiosT0reador</a> -> <a href="https://www.youtube.com/watch?v=oRqJ0EFXmgo">The Blonde by TV Girl</a> - i'd love to compliment yuri with my favorite song in a platonic way - <a href="https://github.com/sirencore">sirencore</a>
 <img src="https://64.media.tumblr.com/803bd64ba3d0890234117cc649afa380/2f3bd6cd9d8d1e57-86/s2048x3072/dce51fa9c00762929641f940ea3774915b38698b.gifv"></img>
