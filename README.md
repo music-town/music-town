@@ -25,6 +25,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 </div>
 <img src="https://64.media.tumblr.com/aebf868441203ea08a905350f53f742a/2f3bd6cd9d8d1e57-8a/s2048x3072/d1716b88a057d710fce2065d382966a7d4ed45c8.gifv"></img>
 <h3>$${\color{#6A42BF}Solo\ songs!}$$</h3>
+<a href="https://github.com/2099s">2099s</a> is Pony Town's <a href="https://www.youtube.com/watch?v=i4ZuseKFBF0">Is There Someone Else? by The Weeknd</a> and <a href="https://www.youtube.com/watch?v=S2ujotDMluo">A Man Without Love by Engelbert Humperdinck</a><i>!</i>!
+<br>
 <a href="https://github.com/5P-25">5P-25</a> is Pony Town's <a href="https://www.youtube.com/watch?v=fXgSpTIfqKs">Random Gods (Theme III) by James Primate</a><i>!</i>!
 <br>
 <a href="https://github.com/ACE0FHEART5">ACE0FHEART5</a> is Pony Town's <a href="https://www.youtube.com/watch?v=jbZT-bwZD3c">streetcat ft. Nekomura Iroha by FLAVOR FOLEY</a> and <a href="https://www.youtube.com/watch?v=7qFfFVSerQo">High and Dry by Radiohead</a><i>!</i>!
@@ -181,7 +183,7 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/dares4swears">dares4swears</a> and <a href="https://github.com/flairforthedramatic">flairforthedramatic</a> are Pony Town's <a href="https://www.youtube.com/watch?v=N5X-OA3HVMA">Kiss Me Now by Pierce The Veil</a> duo<i>!</i>!
 <br>
-<a href="https://github.com/a-dead-plate">a-dead-plate</a>, <a href="https://github.com/dr-vanta">dr-vanta</a>, <a href="https://github.com/DRmRETRO">DRmRETRO</a>, <a href="https://en.pronouns.page/@phantasydreams">phantasydreams</a> and <a href="https://github.com/suqiparkrr">suqiparkrr</a> are Pony Town's <a href="https://www.youtube.com/watch?v=kjU0LXvYVig">Forget Me Not by Laufey</a> quintet<i>!</i>!
+<a href="https://github.com/a-dead-plate">a-dead-plate</a>, <a href="https://github.com/dr-vanta">dr-vanta</a>, <a href="https://github.com/DRmRETRO">DRmRETRO</a>, <a href="https://github.com/phantasy-dreams">phantasy-dreams</a> and <a href="https://github.com/suqiparkrr">suqiparkrr</a> are Pony Town's <a href="https://www.youtube.com/watch?v=kjU0LXvYVig">Forget Me Not by Laufey</a> quintet<i>!</i>!
 <br>
 <a href="https://github.com/biteofme">biteofme</a> and <b><i>prreli</i></b> are Pony Town's <a href="https://www.youtube.com/watch?v=xg_Y7Or_hWM">Last Night on Earth by Green Day</a> duo<i>!</i>!
 <br>
