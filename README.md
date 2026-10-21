@@ -71,7 +71,7 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/DRmRETRO">DRmRETRO</a> is Pony Town's <a href="https://www.youtube.com/watch?v=E4tIHBx7bqc">Blessing feat. VOCALOIDS by halyosy</a> and <a href="https://www.youtube.com/watch?v=M7VSEZOQIlg">weathergirl feat. Eleanor Forte by FLAVOR FOLEY</a><i>!</i>!
 <br>
-<a href="https://github.com/dr-vanta">dr-vanta</a> is Pony Town's <a href="https://www.youtube.com/watch?v=5-rfnjXj91Y">Battle Vs Dr. Vanta by Rxpp/Ray</a> and <a href="https://www.youtube.com/watch?v=eYHUeL2jZNg">How Many More Now by [[LUCA]]</a><i>!</i>!
+<a href="https://github.com/dr-vanta">dr-vanta</a> is Pony Town's <a href="https://www.youtube.com/watch?v=5-rfnjXj91Y">Battle Vs Dr. Vanta by Rxpp/Ray</a> and <a href="https://www.youtube.com/watch?v=3SHQWzNQw4c">Rainbow Factory by GLAZE</a><i>!</i>!
 <br>
 <a href="https://github.com/DucksEatBreads">DucksEatBreads</a> is Pony Town's <a href="https://www.youtube.com/watch?v=sfYNyZha0vw">Soup is Good Food by Dead Kennedys</a> and <a href="https://www.youtube.com/watch?v=uE60iiHvabk">It's Beginning to Look A Lot Like Christmas by Bing Crosby</a><i>!</i>!
 <br>
