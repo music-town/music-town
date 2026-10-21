@@ -101,7 +101,7 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/mandela-net">mandela-net</a> is Pony Town's <a href="https://www.youtube.com/watch?v=2mhea--CfpI">BAD LUCK! by Jhariah</a> and <a href="https://www.youtube.com/watch?v=VWx9WoEYb5E">In My Room by JULIA WOLF</a><i>!</i>!
 <br>
-<a href="https://github.com/mapleSyrup-dot">mapleSyrup-dot</a> is Pony Town's <a href="https://www.youtube.com/watch?v=ZPNqub966Tw">The Zombie Song by Stephanie Mabey</a><i>!</i>!
+<a href="https://github.com/mapleSyrup-dot">mapleSyrup-dot</a> is Pony Town's <a href="https://www.youtube.com/watch?v=ZPNqub966Tw">The Zombie Song by Stephanie Mabey</a> and <a href="https://www.youtube.com/watch?v=GssxG8XtOf8">Ye Ye Ye by Portura</a><i>!</i>!
 <br>
 <a href="https://github.com/monachgrievings">monachgrievings</a> is Pony Town's <a href="https://www.youtube.com/watch?v=-bQhQ59TTtM">Toes by Glass Animals</a> and <a href="https://www.youtube.com/watch?v=zWKasrXGXoc">Wishes by Foolish Pride</a><i>!</i>!
 <br>
@@ -125,6 +125,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <a href="https://github.com/plvsticdoll">plvsticdoll</a> is Pony Town's <a href="https://www.youtube.com/watch?v=34O4TxvuEKE">Ma Meilleure Ennemie feat. Coldplay by Stromae, Pomme, and Arcane</a> and <a href="https://www.youtube.com/watch?v=GkT_u4uiD2w">TWICE REMOVED by Jane Remover</a><i>!</i>!
 <br>
 <a href="https://github.com/qnakin">qnakin</a> is Pony Town's <a href="https://www.youtube.com/watch?v=JMs1asYZ_SU">Edelwiss by The Sound of Music</a><i>!</i>!
+<br>
+<a href="https://github.com/ryomxnsukuna">ryomxnsukuna</a> is Pony Town's <a href="https://www.youtube.com/watch?v=Esu__LAsA68">The Court Jester feat. Fukase by Thquib</a> and <a href="https://www.youtube.com/watch?v=WS0ZqIWSy84">Take A Slice by Glass Animals</a><i>!</i>!
 <br>
 <a href="https://github.com/scagalicous">scagalicous</a> is Pony Town's <a href="https://www.youtube.com/watch?v=JOJ0Qk85cJA">Cicadas by Machine Girl</a><i>!</i>!
 <br>
