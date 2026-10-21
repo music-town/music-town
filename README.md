@@ -45,6 +45,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/Chemicalshot">Chemicalshot</a> is Pony Town's <a href="https://www.youtube.com/watch?v=uKIFNfmYcFI">ATTACKING VERTICAL by femtanyl</a> and <a href="https://www.youtube.com/watch?v=Hmc41Zsb2Ns">ゴキブリの味 by MARETU</a><i>!</i>!
 <br>
+<a href="https://github.com/copperbottoms">copperbottoms</a> is Pony Town's <a href="https://www.youtube.com/watch?v=-B57lnGcMpY">Souk Eyes by Gorillaz</a><i>!</i>!
+<br>
 <a href="https://github.com/Corintheuss">Corintheuss</a> is Pony Town's <a href="https://www.youtube.com/watch?v=D_lf3g4cWeg">Mx. Sinister by I DONT KNOW HOW BUT THEY FOUND ME</a><i>!</i>!
 <br>
 <a href="https://github.com/cpn-cook">cpn-cook</a> is Pony Town's <a href="https://www.youtube.com/watch?v=KIKyFPVMMG8">Zip Up My Fly by Malcolm Todd</a><i>!</i>!
