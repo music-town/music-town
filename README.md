@@ -136,6 +136,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/scagalicous">scagalicous</a> is Pony Town's <a href="https://www.youtube.com/watch?v=JOJ0Qk85cJA">Cicadas by Machine Girl</a><i>!</i>!
 <br>
+<a href="https://github.com/shawnfrostee12">shawnfrostee12</a> is Pony Town's <a href="https://www.youtube.com/watch?v=BoIYjXwlmQ4">Across the Sea by hadashi</a><i>!</i>!
+<br>
 <a href="https://github.com/shurilong">shurilong</a> is Pony Town's <a href="https://www.youtube.com/watch?v=valVixMpzQY">One Way Or Another by Blondie</a> and <a href="https://www.youtube.com/watch?v=rWxUtq4gIak">God-ish by Will Stetson</a><i>!</i>!
 <br>
 <a href="https://github.com/star-employee">star-employee</a> is Pony Town's <a href="https://www.youtube.com/watch?v=wqPdeT6Jpdg">Wet by Dazey and the Scouts</a> and <a href="https://www.youtube.com/watch?v=rL-Zq4NXPoU">FOOL ME NOT by rattlepate</a><i>!</i>!
