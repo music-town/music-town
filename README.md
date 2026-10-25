@@ -103,6 +103,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/kittydummy">kittydummy</a> is Pony Town's <a href="https://www.youtube.com/watch?v=HnEhgFcm8bs">Burnt Rice (feat. Yung GEMMY) by Shawn Wasabi</a><i>!</i>!
 <br>
+<a href="https://github.com/lokeean">lokeean</a> is Pony Town's <a href="https://www.youtube.com/watch?v=PCM-7LyNxtk">Here Come The Cats by Waitress</a> and <a href="https://www.youtube.com/watch?v=D4Ha40XUE1E">Obsessica by Malcolm Todd</a><i>!</i>!
+<br>
 <a href="https://github.com/mandela-net">mandela-net</a> is Pony Town's <a href="https://www.youtube.com/watch?v=2mhea--CfpI">BAD LUCK! by Jhariah</a> and <a href="https://www.youtube.com/watch?v=VWx9WoEYb5E">In My Room by JULIA WOLF</a><i>!</i>!
 <br>
 <a href="https://github.com/MangoestMango">MangoestMango</a> is Pony Town's <a href="https://www.youtube.com/watch?v=l9CZykYZkOQ">Touch by KATSEYE</a><i>!</i>!
