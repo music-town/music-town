@@ -113,6 +113,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/Jeverus">Jeverus</a> is Pony Town's <a href="https://www.youtube.com/watch?v=2UznYJYpQGo">Survival For The Fittest (Slasher VS Guest 1337 LMS) by The FORSAKEN OST Team</a><i>!</i>!
 <br>
+<a href="https://github.com/jsschlatt">jsschlatt</a> is Pony Town's <a href="https://www.youtube.com/watch?v=tM5JbOiPvtA">The Bigger The Figure by Louis Prima & His Orchestra</a> and <a href="https://www.youtube.com/watch?v=loqTWrf_SG4">Summertime by Shigeo Shikito</a><i>!</i>!
+<br>
 <a href="https://github.com/kazutorawr">kazutorawr</a> is Pony Town's <a href="https://www.youtube.com/watch?v=XBMAXXy0OY4">Ghost by Kazutora Hanemiya (CV:Toki Shunichi)</a> and <a href="https://www.youtube.com/watch?v=s70kXs0vjWo">Izana Kurokawa (CV:Nobunaga Shimazaki)</a><i>!</i>!
 <br>
 <a href="https://github.com/kittydummy">kittydummy</a> is Pony Town's <a href="https://www.youtube.com/watch?v=HnEhgFcm8bs">Burnt Rice (feat. Yung GEMMY) by Shawn Wasabi</a><i>!</i>!
