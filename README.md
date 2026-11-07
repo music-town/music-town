@@ -53,6 +53,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/Biteofme">Biteofme</a> is Pony Town's <a href="https://www.youtube.com/watch?v=jgHpJRj4EVI">Hold On Till May by Pierce The Veil</a> and <a href="https://www.youtube.com/watch?v=wWTD18Sktfg">THE WEEKEND By Millionaires</a><i>!</i>!
 <br>
+<a href="https://github.com/Blame-John">Blame-John</a> is Pony Town's <a href="https://www.youtube.com/watch?v=GIsc6Q9VkcA">What's Left by The Walters</a> and <a href="https://www.youtube.com/watch?v=3gsLmRiAI3Q">It Won't Be Long by Corduroy</a><i>!</i>!
+<br>
 <a href="https://github.com/calc0maniia">calc0maniia</a> is Pony Town's <a href="https://www.youtube.com/watch?v=vDmDzOtcfHQ">Transformation by J&H Musical</a><i>!</i>!
 <br>
 <a href="https://github.com/calemholic">calemholic</a> is Pony Town's <a href="https://www.youtube.com/watch?v=-ryNfrDCpmI">unhappy by s0rrow</a><i>!</i>!
