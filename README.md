@@ -176,6 +176,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/sokizsp4ceship">sokizsp4ceship</a> is Pony Town's <a href="https://www.youtube.com/watch?v=jQj2YmIklrw">LIPSTICK by Odetari</a><i>!</i>!
 <br>
+<a href="https://github.com/spam-tune">spam-tune</a> is Pony Town's <a href="https://www.youtube.com/watch?v=S7Z4UD2b5UU">Beauty School Dropout (From "Grease") by Frankie Avalon</a><i>!</i>!
+<br>
 <a href="https://github.com/star-employee">star-employee</a> is Pony Town's <a href="https://www.youtube.com/watch?v=wqPdeT6Jpdg">Wet by Dazey and the Scouts</a> and <a href="https://www.youtube.com/watch?v=rL-Zq4NXPoU">FOOL ME NOT by rattlepate</a><i>!</i>!
 <br>
 <a href="https://github.com/SukunaXRyomen">SukunaXRyomen</a> is Pony Town's <a href="https://www.youtube.com/watch?v=9xHmqRSlMoY">Playing Dead by And One</a> and <a href="https://www.youtube.com/watch?v=51RBKuhfoo0">破誡の果て by Malice Mizer</a><i>!</i>!
