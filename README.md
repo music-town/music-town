@@ -152,7 +152,7 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/RadiantCity">RadiantCity</a> is Pony Town's <a href="https://www.youtube.com/watch?v=X4Abelos_ms">Hanya Untuk mu by Ten2Five</a> and <a href="https://www.youtube.com/watch?v=zfT60dky4oo">Sempura by Insomniacks</a><i>!</i>!
 <br>
-<a href="https://github.com/re0-mikage">re0-mikage</a> is Pony Town's <a href="https://www.youtube.com/watch?v=MQDKywDP5G8">4 Morant (Better Luck Next Time) by Com Truise</a><i>!</i>!
+<a href="https://github.com/RE0-MIKAGE">RE0-MIKAGE</a> is Pony Town's <a href="https://www.youtube.com/watch?v=MQDKywDP5G8">4 Morant (Better Luck Next Time) by Com Truise</a><i>!</i>!
 <br>
 <a href="https://github.com/ryomxnsukuna">ryomxnsukuna</a> is Pony Town's <a href="https://www.youtube.com/watch?v=Esu__LAsA68">The Court Jester feat. Fukase by Thquib</a> and <a href="https://www.youtube.com/watch?v=WS0ZqIWSy84">Take A Slice by Glass Animals</a><i>!</i>!
 <br>
