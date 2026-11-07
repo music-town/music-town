@@ -31,6 +31,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/5P-25">5P-25</a> is Pony Town's <a href="https://www.youtube.com/watch?v=fXgSpTIfqKs">Random Gods (Theme III) by James Primate</a><i>!</i>!
 <br>
+<a href="https://github.com/ABYSSALCHOIR">ABYSSALCHOIR</a> is Pony Town's <a href="https://www.youtube.com/watch?v=9d_4Dltgrsg">Hate Yourself by TV Girl</a><i>!</i>!
+<br>
 <a href="https://github.com/ACE0FHEART5">ACE0FHEART5</a> is Pony Town's <a href="https://www.youtube.com/watch?v=jbZT-bwZD3c">streetcat ft. Nekomura Iroha by FLAVOR FOLEY</a> and <a href="https://www.youtube.com/watch?v=7qFfFVSerQo">High and Dry by Radiohead</a><i>!</i>!
 <br>
 <a href="https://github.com/AcxerSonnellino">AcxerSonnellino</a> is Pony Town's <a href="https://www.youtube.com/watch?v=eT4jgYQqE7I">Soldier Boy by The Shirelles</a> and <a href="https://www.youtube.com/watch?v=bFLDTcLBcZU">Class of 2013 by Mitski</a><i>!</i>!
