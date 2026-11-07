@@ -202,6 +202,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/toastedmarshmallows">toastedmarshmallows</a> is Pony Town's <a href="https://www.youtube.com/watch?v=Fcs9DLlHsPI">Cowboys and Angels (2010 Remastered Version) by George Michael</a> and <a href="https://www.youtube.com/watch?v=NWE4ddnlNKA">Kids by Current Joys</a><i>!</i>!
 <br>
+<a href="https://github.com/tomatosu">tomatosu</a> is Pony Town's <a href="https://www.youtube.com/watch?v=vR49dHUwMUA">Less than a Lover by JENNIE</a> and <a href="https://www.youtube.com/watch?v=1BCqCgamowo">Heavy by The Marias</a><i>!</i>!
+<br>
 <a href="https://github.com/twottimey">twottimey</a> is Pony Town's <a href="https://www.youtube.com/watch?v=HZik4fKw3G0">Two Time by Jack Stauber</a><i>!</i>!
 <br>
 <a href="https://github.com/uselessflower">uselessflower</a> is Pony Town's <a href="https://www.youtube.com/watch?v=GWf9_qSrnOM">Flower Man by Toby Fox</a><i>!</i>!
