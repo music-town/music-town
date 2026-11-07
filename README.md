@@ -63,7 +63,7 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/cpn-cook">cpn-cook</a> is Pony Town's <a href="https://www.youtube.com/watch?v=KIKyFPVMMG8">Zip Up My Fly by Malcolm Todd</a><i>!</i>!
 <br>
-<a href="https://github.com/c-utesy">c-utesy</a> is Pony Town's <a href=""></a> and <a href="https://www.youtube.com/watch?v=YfXpNIQbdjo">KATAMARI by femtanyl</a> and <a href="https://www.youtube.com/watch?v=lvmFEsmHUOU">SICK SICK SICK by STOMACH BOOK</a><i>!</i>!
+<a href="https://github.com/c-utesy">c-utesy</a> is Pony Town's <a href="https://www.youtube.com/watch?v=YfXpNIQbdjo">KATAMARI by femtanyl</a> and <a href="https://www.youtube.com/watch?v=lvmFEsmHUOU">SICK SICK SICK by STOMACH BOOK</a><i>!</i>!
 <br>
 <a href="https://github.com/dalerubio">dalerubio</a> is Pony Town's <a href="https://www.youtube.com/watch?v=v6Ga63b2Q-E">444 (Remix) by Yan Block, De La Rose, Hades66 and Ñengo Flow</a><i>!</i>!
 <br>
@@ -161,6 +161,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <a href="https://github.com/ryomxnsukuna">ryomxnsukuna</a> is Pony Town's <a href="https://www.youtube.com/watch?v=Esu__LAsA68">The Court Jester feat. Fukase by Thquib</a> and <a href="https://www.youtube.com/watch?v=WS0ZqIWSy84">Take A Slice by Glass Animals</a><i>!</i>!
 <br>
 <a href="https://github.com/scagalicous">scagalicous</a> is Pony Town's <a href="https://www.youtube.com/watch?v=JOJ0Qk85cJA">Cicadas by Machine Girl</a><i>!</i>!
+<br>
+<a href="https://github.com/sharpestvictory">sharpestvictory</a> is Pony Town's <a href="https://www.youtube.com/watch?v=HzYrZoALCCA">I Can't Handle Change by Roar</a> and <a href="https://www.youtube.com/watch?v=8UFIYGkROII">Crank That (Soulja Boy) by Soulja Boy</a><i>!</i>!
 <br>
 <a href="https://github.com/shawnfrostee12">shawnfrostee12</a> is Pony Town's <a href="https://www.youtube.com/watch?v=BoIYjXwlmQ4">Across the Sea by hadashi</a><i>!</i>!
 <br>
