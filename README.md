@@ -115,7 +115,7 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/itrap-2245">itrap-2245</a> is Pony Town's <a href="https://www.youtube.com/watch?v=s-SVou8FtVw">Getting Over You by Hot Freaks</a><i>!</i>!
 <br>
-<a href="https://github.com/Jeverus">Jeverus</a> is Pony Town's <a href="https://www.youtube.com/watch?v=2UznYJYpQGo">Survival For The Fittest (Slasher VS Guest 1337 LMS) by The FORSAKEN OST Team</a><i>!</i>!
+<a href="https://github.com/Jeverus">Jeverus</a> is Pony Town's <a href="https://www.youtube.com/watch?v=2UznYJYpQGo">Survival For The Fittest (Slasher VS Guest 1337 LMS) by The FORSAKEN OST Team</a> and <a href="https://www.youtube.com/watch?v=x492r4IUSbA">FOR OLD TIMES SAKE (Crazyblox VS Guide LMS) by The FORSAKEN OST Team</a><i>!</i>!
 <br>
 <a href="https://github.com/jsschlatt">jsschlatt</a> is Pony Town's <a href="https://www.youtube.com/watch?v=tM5JbOiPvtA">The Bigger The Figure by Louis Prima & His Orchestra</a> and <a href="https://www.youtube.com/watch?v=loqTWrf_SG4">Summertime by Shigeo Shikito</a><i>!</i>!
 <br>
