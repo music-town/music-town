@@ -121,6 +121,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/monachgrievings">monachgrievings</a> is Pony Town's <a href="https://www.youtube.com/watch?v=-bQhQ59TTtM">Toes by Glass Animals</a> and <a href="https://www.youtube.com/watch?v=zWKasrXGXoc">Wishes by Foolish Pride</a><i>!</i>!
 <br>
+<a href="https://github.com/MrCapgrasEncountersaSecondhandVanity">MrCapgrasEncountersaSecondhandVanity</a> is Pony Town's <a href="https://www.youtube.com/watch?v=3Dd3dl7W8rM">Mr. Capgras Encounters a Secondhand Vanity: Tulpamancer's Prosopagnosia / Pareidolia (As Direct Result of Trauma to Fusiform Gyrus) by Will Wood and the Tapeworms</a><i>!</i>!
+<br>
 <a href="https://github.com/MY-BLOODY-VALENTlNE">MY-BLOODY-VALENTlNE</a> is Pony Town's <a href="https://www.youtube.com/watch?v=4nE1g3s7pDQ">The Ballad of Harry Warden by Diechotomy</a><i>!</i>!
 <br>
 <a href="https://github.com/Nadd-nadd">Nadd-nadd</a> is Pony Town's <a href="https://soundcloud.com/metahumanboi/looping-the-rooms-larpmellia">Larping The Rooms ("Larpmellia" Remix) by MetaHumanBoi</a> and <a href="https://soundcloud.com/djkurara/satori-de-pon-djkurara-remix">satori de pon! (DJKurara Remix) by goreshit</a><i>!</i>!
