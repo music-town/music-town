@@ -117,6 +117,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/kittydummy">kittydummy</a> is Pony Town's <a href="https://www.youtube.com/watch?v=HnEhgFcm8bs">Burnt Rice (feat. Yung GEMMY) by Shawn Wasabi</a><i>!</i>!
 <br>
+<a href="https://github.com/l0veis4ika">l0veis4ika</a> is Pony Town's <a href="https://www.youtube.com/watch?v=QT4fRKguwO0">LOVE by Brown Eyed Girls</a><i>!</i>!
+<br>
 <a href="https://github.com/livingforest">livingforest</a> is Pony Town's <a href="https://www.youtube.com/watch?v=--b08pVb6Do">For the Best by Gregory & The Hawk</a><i>!</i>!
 <br>
 <a href="https://github.com/lokeean">lokeean</a> is Pony Town's <a href="https://www.youtube.com/watch?v=PCM-7LyNxtk">Here Come The Cats by Waitress</a> and <a href="https://www.youtube.com/watch?v=D4Ha40XUE1E">Obsessica by Malcolm Todd</a><i>!</i>!
