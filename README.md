@@ -174,6 +174,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/RE0-MIKAGE">RE0-MIKAGE</a> is Pony Town's <a href="https://www.youtube.com/watch?v=MQDKywDP5G8">4 Morant (Better Luck Next Time) by Com Truise</a><i>!</i>!
 <br>
+<a href="https://github.com/ReplicaOfAffection">ReplicaOfAffection</a> is Pony Town's <a href="https://www.youtube.com/watch?v=cpq59FkY2aQ">Intruso by Enjambre</a> and <a href="https://www.youtube.com/watch?v=FTIvFD7TCVg">Everything is romantic by Charlie xcx</a><i>!</i>!
+<br>
 <a href="https://github.com/rocket-baby-dolls">rocket-baby-dolls</a> is Pony Town's <a href="https://www.youtube.com/watch?v=Rov7-J52yPU">Spiral Static by Muse</a> and <a href="https://www.youtube.com/watch?v=7UHuLTiTcng">Eternally Missed by Muse</a><i>!</i>!
 <br>
 <a href="https://github.com/rydenyuri">rydenyuri</a> is Pony Town's <a href="https://www.youtube.com/watch?v=w6LJLcZmJiY">Mad as Rabbits by Panic! At The Disco</a><i>!</i>!
