@@ -145,6 +145,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/mapleSyrup-dot">mapleSyrup-dot</a> is Pony Town's <a href="https://www.youtube.com/watch?v=ZPNqub966Tw">The Zombie Song by Stephanie Mabey</a> and <a href="https://www.youtube.com/watch?v=GssxG8XtOf8">Ye Ye Ye by Portura</a><i>!</i>!
 <br>
+<a href="https://github.com/MissingTextuer">MissingTextuer</a> is Pony Town's <a href="https://www.youtube.com/watch?v=ITVPlO7AxCo">cut the rope by Bucharest Boys</a> and <a href="https://www.youtube.com/watch?v=IXnEbmzTs4Y">It's a Musical World by MASSI</a><i>!</i>!
+<br>
 <a href="https://github.com/monachgrievings">monachgrievings</a> is Pony Town's <a href="https://www.youtube.com/watch?v=-bQhQ59TTtM">Toes by Glass Animals</a> and <a href="https://www.youtube.com/watch?v=zWKasrXGXoc">Wishes by Foolish Pride</a><i>!</i>!
 <br>
 <a href="https://github.com/MrCapgrasEncountersaSecondhandVanity">MrCapgrasEncountersaSecondhandVanity</a> is Pony Town's <a href="https://www.youtube.com/watch?v=3Dd3dl7W8rM">Mr. Capgras Encounters a Secondhand Vanity: Tulpamancer's Prosopagnosia / Pareidolia (As Direct Result of Trauma to Fusiform Gyrus) by Will Wood and the Tapeworms</a><i>!</i>!
