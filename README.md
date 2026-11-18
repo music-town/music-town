@@ -174,6 +174,8 @@ Any type of music is allowed, including OSTs, USTs, etc.! (Unless problematic mu
 <br>
 <a href="https://github.com/plvsticdoll">plvsticdoll</a> is Pony Town's <a href="https://www.youtube.com/watch?v=34O4TxvuEKE">Ma Meilleure Ennemie feat. Coldplay by Stromae, Pomme, and Arcane</a> and <a href="https://www.youtube.com/watch?v=GkT_u4uiD2w">TWICE REMOVED by Jane Remover</a><i>!</i>!
 <br>
+<a href="https://github.com/putmetorestimnotyourstosave">putmetorestimnotyourstosave</a> is Pony Town's <a href="https://www.youtube.com/watch?v=M9qTXR29fSY">Main Titles (from "Resident Evil" Soundtrack) by Hays Holladay and Ryan Holladay</a> and <a href="https://www.youtube.com/watch?v=fZoyDrssagw">Here I Am by The Hellp</a><i>!</i>!
+<br>
 <a href="https://github.com/qnakin">qnakin</a> is Pony Town's <a href="https://www.youtube.com/watch?v=JMs1asYZ_SU">Edelwiss by The Sound of Music</a><i>!</i>!
 <br>
 <a href="https://github.com/RadiantCity">RadiantCity</a> is Pony Town's <a href="https://www.youtube.com/watch?v=X4Abelos_ms">Hanya Untuk mu by Ten2Five</a> and <a href="https://www.youtube.com/watch?v=zfT60dky4oo">Sempura by Insomniacks</a><i>!</i>!
